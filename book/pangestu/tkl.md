@@ -305,3 +305,78 @@ Kajawi punika, Bapak, rehning sampun kacekap anggen kula marak ing ngarsanipun B
 
 **Sadherek Jatmika:**\
 "Matur nuwun, Bapak."
+
+## BAB III
+
+Ing dinten malem Saptu tanggal1 Sawal1892 Saka (19 Maret 1961 Masehi) kaleres nuju terang, lang it ingkang biru riyu-riyu punika katingal sumilak pajar sa king gebyaring kartika ingkang sumebar ngebeki akasa adamel sengsem tuwin lam-laming wardaya. Ing dalu wau Bapak Pangrasa lenggah piyambakan ing pacrabakan Dana Warih manembrama mangayubagya timbuling Hari ldulfitri ingkang sinuci kanthi rerepen sekar Kinanthi:
+
+1. "Rarasing driya kayungyun,<br/>
+kang kawuryan angayemi,<br/>
+lam-lam langening ngancala,<br/>
+ngalela hyang Bagaspati,<br/>
+tuhu socaning bawana,<br/>
+weh tuntum isining bumi.<br/>
+
+2. Mbabar sinar anarawung,<br/>
+kadi anut anekseni,<br/>
+mring hari waktu punika,<br/>
+timbuling wulan Ri-adi,<br/>
+jer wus dadi adat kita,<br/>
+kang sipat madhep netepi.<br/>
+
+3. Mashuring hari rahayu,<br/>
+kita tansah ngemuti,<br/>
+mring sakehing kalepatan,<br/>
+ing lair tanapi batin,<br/>
+angapura ingapura,<br/>
+ambangun sih winales sih.<br/>
+
+4. Tulus winengku tyas hayu,<br/>
+mring kang wus ngakoni sisip,<br/>
+lebura hari punika,<br/>
+tumraping sawiji-wiji,<br/>
+dhangan tulung tinulungan,
+lan reksa rumeksa sami.<br/>
+
+5. Yekti tinemu rahayu,<br/>
+kayoman hayuning budi,<br/>
+lestarining sih sinihan,<br/>
+satata netepi wajib,<br/>
+anguwoh kuwat santosa,<br/>
+ngabdi mring Ibu Pertiwi.<br/>
+
+6. Kita angesthi satuhu,<br/>
+sarosa rasaning batin,<br/>
+misungsung sasanti jaya,<br/>
+mring wulan kang nembe lair,<br/>
+pinarengna ing Hyang Suksma,<br/>
+Pangeran kita sejati.<br/>
+
+7. Kang jumurung reh rahayu,<br/>
+memayu yuning dumadi·,<br/>
+mangudang manadukara,<br/>
+marang sagung titah yekti,<br/>
+ambudi mring kautaman,<br/>
+ing donya prapteng akhir.<br/>
+
+8. Hastha Sila datan limput,<br/>
+cinandhi neng sanubari,<br/>
+sakadar anyudarsana,<br/>
+kang sarira Wisnumurti,<br/>
+lir supe munggwing sutagnya,<br/>
+lawan Sang Guru Sejati.<br/>
+
+9. Puwara panuwun ulun,<br/>
+mring sanggyaning pra nupeksi,<br/>
+saru sikuning ukara,<br/>
+karenan dipunesemi,<br/>
+ambabarna aksamanta,<br/>
+
+pindha wimbaning jaladri.<br/>
+Sigeging gita pinugut,<br/>
+tumeja Sang Sitaresmi,<br/>
+tanggap Sawal Ehe warsa,<br/>
+candrasangkala: Mangeksi,<br/>
+gapura ngesthi manunggal,<br/>
+winantu ing pudyastuti.<br/>
+

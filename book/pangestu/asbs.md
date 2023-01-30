@@ -12,7 +12,7 @@ Sebelum ada apa-apa yang berbentuk dan berwujud, **Suksma Kawekas** telah bertak
 
 Di dalam Kesadaran Agung yang diam ini terkandung Kehendak untuk melepaskan cahaya-cahaya kemampuan dan kesadaran sebagai 'pletikan api' dari api Yang Maha Agung. Tetapi cahaya-cahaya ini belum ada kancahnya. Untuk melaksanakan Kehendak tersebut, omnipotensi yang diam tadi mulai bergerak.
 
-Bergeraknya omnipotensi ini mengeluarkan kejayaannya dan dayanya. Kita misalkan air yang diam yang kemudian bergerak. Bergeraknya air itu ·dapat membangkitkan tenaga listrik. Air yang diam tidak mengeluarkan daya apa-apa, padahal air yang bergerak yang menunjukkan kekuatan, asalnya dari air yang diam. Segala kekuatan dari air yang bergerak berasal dari air yang diam. Jadi, asal dari kemampuan ialah air yang diam dan yang melepaskan kemampuan ialah air yang bergerak.
+Bergeraknya omnipotensi ini mengeluarkan kejayaannya dan dayanya. Kita misalkan air yang diam yang kemudian bergerak. Bergeraknya air itu ·dapat membangkitkan tenaga listrik. Air yang diam tidak mengeluarkan daya apa-apa, padahal air yang bergerak yang menunjukkan kekuatan, asalnya dari air yang diam. Segala kekuatan dari air yang bergerak berasal dari air yang diam. Jadi, asal dari kemampuan ialah air yang diam dan yang melepaskan kemampuan ialah air yang bergerak
 
 ## 2. Suksma Sejati
 
@@ -34,13 +34,13 @@ Cahaya-cahaya yang dilepaskan oleh dan dari Suksma Sejati belum ada kancahnya. C
 
 Samudera yang diam simbolnya Suksma Kawekas; samudra yang bergelombang candranya Suksma Sejati.
 
-Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terhatas, hilamana dihandingkan dengan samudranya tetapi sama-sama air. [Roh Suci](penjelasan-tripurusa) adalah kecil dan terbatas hila dihandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
+Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terbatas, bilamana dihandingkan dengan samudranya tetapi sama-sama air. [Roh Suci](penjelasan-tripurusa) adalah kecil dan terbatas bila dibandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
 
-Terbatasnya Roh Suci menimbulkan adanya individualitas prihadi yang terhatas pula. Waktu itu Roh Suci dikandung dalam suasana bahagia oleh Suksma Sejati dan Suksma Kawekas.
+Terbatasnya Roh Suci menimbulkan adanya individualitas pribadi yang terbatas pula. Waktu itu Roh Suci dikandung dalam suasana bahagia oleh Suksma Sejati dan Suksma Kawekas.
 
 ## 4. Inti sari sahadat sebagai pedoman hidup
 
-Roh Suci menyadari bahwa ia asal dari Suksma Sejati dan Suksma Kawekas, dan menyadari perimhangan hirarki antara Suksma Kawekas, Suksma Sejati, dan ia sendiri. Waktu itu hanya kesadaran semata-mata, belum ada hahasa apa pun, karena waktu itu belum ada hadan jasmani. Roh Suci menyadari pula bahwa ia harus kembali lagi meleburkan diri dalam Suksma Sejati dengan menghilangkan individualitasnya. Titik air harus kembali lagi ke asal mulanya: samudra yang tak bertepi.
+Roh Suci menyadari bahwa ia asal dari Suksma Sejati dan Suksma Kawekas, dan menyadari perimbangan hirarki antara Suksma Kawekas, Suksma Sejati, dan ia sendiri. Waktu itu hanya kesadaran semata-mata, belum ada bahasa apa pun, karena waktu itu belum ada badan jasmani. Roh Suci menyadari pula bahwa ia harus kembali lagi meleburkan diri dalam Suksma Sejati dengan menghilangkan individualitasnya. Titik air harus kembali lagi ke asal mulanya: samudra yang tak bertepi.
 
 Kesadaran ini bila diterjemahkan dalam kata-kata isinya sebagai berikut:
 
@@ -52,16 +52,16 @@ Kesadaran ini bila diterjemahkan dalam kata-kata isinya sebagai berikut:
 
 Kesadaran pertama dan terpenting dari Roh Suci ini yang dinamakan intisari syahadat.
 
-Nanti hilamana Roh Suci terjun dalam kancah hadan jasmani, itu harus dipakai sebagai pedoman hidup. Maka semua
+Nanti bilamana Roh Suci terjun dalam kancah hadan jasmani, itu harus dipakai sebagai pedoman hidup. Maka semua
 petunjuk yang asalnya dari Suksma Sejati atas Kehendak Suksma Kawekas berintisarikan syahadat. Waspadalah!
 
 ## 5. Tripurusa; terjadinya 4 unsur
 
 Kesatuan dan keseluruhan Suksma Kawekas, Suksma Sejati dan Roh Suci dinamakan **Tripurusa**. Syahadat adalah kesadaran Roh Suci dalam Tripurusa.
 
-Karena belum ada kancah untuk menerima Roh Suci, sementara Roh Suci terkandung dalam pangkuan Suksma Sejati dan Suksma Kawekas. Kandungan ini bersuasana bahagia yang tidak ada bandingannya: tenang, tenteram dan diliputi kasih-sayang yang tak terhingga, semurni-murninya. Atas Kehendak Suksma Kawekas disabdakan oleh Suksma Sejati adanya **unsur-unsur**.
+Karena belum ada kancah untuk menerima Roh Suci, sementara Roh Suci terkandung dalam pangkuan Suksma Sejati dan Suksma Kawekas. Kandungan ini bersuasana bahagia yang tidak ada bandingannya: tenang, tenteram dan diliputi kasih sayang yang tak terhingga, semurni-murninya. Atas Kehendak Suksma Kawekas disabdakan oleh Suksma Sejati adanya **unsur-unsur**.
 
-Yang pertama diadakan ialah unsur **suasana**. Dengan timbulnya unsur pertama ini lahirlah seketika yang kita sebut ruang dan waktu. Ruang karena unsur suasana pertama membawa ukuran-ukuran, dan waktu karena unsur pertama disusun oleh unsur-unsur lainnya. **Berturut-turut diadakan unsur api, kemudian unsur air dan akhirnya unsur tanah.**
+Yang pertama diadakan ialah unsur **suasana**. Dengan timbulnya unsur pertama ini lahirlah seketika yang kita sebut ruang dan waktu. Ruang karena unsur suasana pertama membawa ukuran - ukuran, dan waktu karena unsur pertama disusun oleh unsur-unsur lainnya. **Berturut-turut diadakan unsur api, kemudian unsur air dan akhirnya unsur tanah.**
 
 Unsur-unsur tersebut berbentuk halus sekali. Di dalam unsur-unsur itu telah tersimpan kekuatan-kekuatan yang berbeda satu sama lain sifatnya. Kekuatan-kekuatan tersebut menimbulkan saling pengaruh-mempengaruhi. Unsur-unsur makin lama makin padat, dan akhirnya atas Kebijaksanaan Suksma Sejati terwujudlah **semesta raya** ini.
 
@@ -73,7 +73,7 @@ Dalam selubung badan jasmani hubungan erat antara Roh Suci, Suksma Sejati dan Su
 
 Sekarang gelap gulita meliputi perasaan manusia. Suasana Tripurusa tersilam. Manusia telah berada di dunia. Suasana Tripurusa yang nikmat tidak kurang suatu apa telah ditinggalkannya karena Roh Suci mengingini terjun dalam alam unsur-unsur. Sorga telah ditinggalkannya. Ini terjadi pada tiap Roh Suci yang menjadi Jiwanya yang Sejati dari tiap manusia. Maka tiap manusia pernah mengalami pengusiran diri dari sorga.
 
-Di dunia manusia melihat ke kiri-kanan dan tertangkaplah oleh pancaindranya keramaian di sekitamya: ada tumbuh-tumbuhan dan hewan beraneka ragam dan wama. Pula ada dewa-dewa yang diadakan oleh Suksma Kawekas melalui Suksma Sejati. Kekuatan unsur-unsur yang menyusun badan jasmani manusia merupakan kekuatan-kekuatan untuk menjamin hidupnya di dunia. Kekuatan-kekuatan itu dinamakan **nafsu-nafsu**. Karemi semua 4 unsur menjadi bekal penyusun badan jasmani, maka terdapat pula 4 macam nafsu.
+Di dunia manusia melihat ke kiri-kanan dan tertangkaplah oleh pancaindranya keramaian di sekitarnya: ada tumbuh-tumbuhan dan hewan beraneka ragam dan wama. Pula ada dewa-dewa yang diadakan oleh Suksma Kawekas melalui Suksma Sejati. Kekuatan unsur-unsur yang menyusun badan jasmani manusia merupakan kekuatan-kekuatan untuk menjamin hidupnya di dunia. Kekuatan-kekuatan itu dinamakan **nafsu-nafsu**. Karena semua 4 unsur menjadi bekal penyusun badan jasmani, maka terdapat pula 4 macam nafsu.
 
 ## 7. Mutmainah
 
@@ -91,7 +91,7 @@ Nafsu yang dikandung unsur air ialah kekuatan untuk mendekatkan pada sesuatu, ap
 
 **Amarah** sebagai nafsu keempat mempunyai akar dalam unsur api dan sifatnya kita lihat dalam kemauan manusia. Bila Amarah itu kuat, manusia mempunyai kemauan yang tak kunjung padam. Kelemahan dalam kemauan disebabkan kurang menyalanya unsur api.
 
-Kekuatan ini dapat dilepaskan dengan mendadak seperti gunung yang meletus. Ini bila orang sedang marah. Tetapi kekuatan ini berdaya guna sekali bilamana manusia dapat menyalurkannya. Bila demikian Amarah adalah sumber kek:uatan kerja yang tidak ada putus asanya. Kekuatan atom dapat dilepaskan sekaligus sebagai born atom. Tetapi kekuatan yang sama itu dapat disalurkan menjadi mesin kapal laut atau pabrik tenaga listrik yang berfaedah sekali bagi umat manusia Amarah yang membuat kemginan menjadi tercapai.
+Kekuatan ini dapat dilepaskan dengan mendadak seperti gunung yang meletus. Ini bila orang sedang marah. Tetapi kekuatan ini berdaya guna sekali bilamana manusia dapat menyalurkannya. Bila demikian Amarah adalah sumber kekuatan kerja yang tidak ada putus asanya. Kekuatan atom dapat dilepaskan sekaligus sebagai bom atom. Tetapi kekuatan yang sama itu dapat disalurkan menjadi mesin kapal laut atau pabrik tenaga listrik yang berfaedah sekali bagi umat manusia Amarah yang membuat keinginan menjadi tercapai.
 
 ## 11. Kombinasi antara nafsu-nafsu
 
@@ -99,13 +99,13 @@ Kekuatan ini dapat dilepaskan dengan mendadak seperti gunung yang meletus. Ini b
 
 Hubungan Lauamah, Amarah, dan Sufiah dapat membawa kekuatan badan jasmani, tetapi juga dapat mendatangkan bencana bagi orang lain atau masyarakat besar. ·
 
-Dalam badan jasmani Mutmainah dan Lauamah selalu beroposisi, ber-polaritas. Sufiah dan Amarah tidak menentukan politik. Mutmainah dan Lauamah menentukan watak manusia.
+Dalam badan jasmani Mutmainah dan Lauamah selalu beroposisi, berpolaritas. Sufiah dan Amarah tidak menentukan politik. Mutmainah dan Lauamah menentukan watak manusia.
 
 ## 12. Pemimpin, Penuntun, dan Guru Sejati
 
 Adakah yang memimpin pertarungan antara dua nafsu itu? 12 Bila ada, siapakah ini?
 
-Seperti telah dikatakan, asal mula segala-galanya ialah Suksma Kawekas. Kekuatan pelaksanaan adalah Utusan Yang Abadi, Suksma Sejati. Sumber inisiatif dan aktivitas yang semumi-muminya ialah Suksma Kawekas dan Suksma Sejati. Di situlah letak pimpinan yang setinggi-tingginya. Suksma Sejati disebut pula **Pemimpin, Penuntun dan Guru manusis yang Sejati**.
+Seperti telah dikatakan, asal mula segala-galanya ialah Suksma Kawekas. Kekuatan pelaksanaan adalah Utusan Yang Abadi, Suksma Sejati. Sumber inisiatif dan aktivitas yang semurnii-murninya ialah Suksma Kawekas dan Suksma Sejati. Di situlah letak pimpinan yang setinggi-tingginya. Suksma Sejati disebut pula **Pemimpin, Penuntun dan Guru manusia yang Sejati**.
 
 ## 13. Angan-angan, bayangan Tripurusa
 
@@ -115,13 +115,13 @@ Di sini Suksma Sejati atas Kehendak Suksma Kawekas melimpahkan Kemurahan-Nya. Di
 
 Dalam sebuah cermin kita dapat melihat bayangan atau refleksi dari matahari. Sekalipun itu hanya bayangan saja, namun ia dapat memancarkan cahaya untuk penerangan dan memberikan panasnya.
 
-Tentunya cahaya dari bayangan itu tidak seterang cahaya yang langsung dari matahari. Sarna halnya dengan **bayangan Tripurusa** dalam badan jasmani. Bayangan tersebut diberi nama **angan-angan**.
+Tentunya cahaya dari bayangan itu tidak seterang cahaya yang langsung dari matahari. Sama halnya dengan **bayangan Tripurusa** dalam badan jasmani. Bayangan tersebut diberi nama **angan-angan**.
 
 Angan-angan mempunyai kekuatan memimpin dan dapat memberi pepadang yang berupa pengertian. Pimpinan dan pepadang yang memancar dari angan-angan itu sudah cukup untuk keperluan mengatur nafsu-nafsu. Angan-angan sebagai penjelmaan kemurahan Suksma Sejati merupakan wakil dari Tripurusa untuk memegang pimpinan selama manusia belum sadar untuk menerima dan mengingini tuntunan dari Tripurusa lagi.
 
 ## 14. Aku
 
-Kekuatan di dalam angan-angan untuk tugas sehari-hari di putuskan dalam apa yang disebut **Aku**.
+Kekuatan di dalam angan-angan untuk tugas sehari-hari diputuskan dalam apa yang disebut **Aku**.
 
 Jadi Aku secara struktural merupakan pemusatan atau kristalisasi dari daya angan-angan, maka Aku juga mengandung sifat-sifat yang terdapat di dalam Tripurusa. Kita melihat bahwa kepada sang Aku melekat beberapa sifat: misalnya kedaulatan, kekuasaan, inisiatif, aktivitas dan pribadi.
 
@@ -140,7 +140,7 @@ Bila manusia menerima getaran dari dunia luar yang ditangkap oleh pancaindra, ia
 Bila nafsu manusia bergolak keluar, nafsu selalu melewati sang Aku. Manusia lalu mengatakan: Aku mau ini dan itu. Aku mempunyai keinginan.
 Sang Aku merupakan wakil rna Sejati.
 
-Semua aktivitas ke luar dan ke dalam melalui Aku. Menurut struktur Aku timbulnya dari penyusunan angan-angan. Secara fungsional Aku meliputi jiwa seluruhnya, tidak hanya angan-angan saja. Seolah-olah sang Aku menyelubungi keseluruhannya. Karena selubung ini kita merasa adanya kesatuan, keutuhan dan keseluruhan. Jadi Aku berada di an tara Alam Sejati (Tripurusa) dan alam unsur-unsur (nafsu-nafsu).
+Semua aktivitas ke luar dan ke dalam melalui Aku. Menurut struktur Aku timbulnya dari penyusunan angan-angan. Secara fungsional Aku meliputi jiwa seluruhnya, tidak hanya angan-angan saja. Seolah-olah sang Aku menyelubungi keseluruhannya. Karena selubung ini kita merasa adanya kesatuan, keutuhan dan keseluruhan. Jadi Aku berada dian tara Alam Sejati (Tripurusa) dan alam unsur-unsur (nafsu-nafsu).
 
 ## 16. Perasaan
 
@@ -158,7 +158,7 @@ Aku adalah pusat pimpinan jiwa manusia, yang mempunyai pengaruh atas angan-angan
 
 Kesempatan untuk menjadi kuat bagi sang Aku diberikan sepanjang hidup. Pada permulaan timbulnya Aku, si anak dihinggapi sifat-sifat Aku seperti kedaulatan, inisiatif, aktivitas, kekuasaan, kebebasan bergerak. Si anak pada waktu itu merasa berdaulat dan bebas, tidak menghiraukan sekitarnya. Saat ini lazim disebut: **kemratu-ratu**, karena sifat si anak mirip sifat sang Ratu atau Raja. Angan-angan masih mempunyai segi-segi lain. Apakah ini?
 
-## 18. Cipta, nalar, pengerti
+## 18. Cipta, nalar, pangerti
 
 Tugas angan-angan ialah untuk menangkap segala sesuatu yang ada dalam dunia besar ini ke dalam otak melalui pintu gerbang pancaindera. Semua getaran dari semesta raya disimpan dalam otak kita. Semua gambaran dalam otak dapat dihubungkan satu sama lain.
 
@@ -168,7 +168,7 @@ Daya dari angan-angan untuk menghubungkan semua bayangan yang ada dalam otak dis
 
 Kemampuan dari angan-angan untuk melihat keseluruhannya tidak terletak di dalam otak melainkan dalam jantung. Kemampuan terakhir ini menimbulkan pengertian dan karena itu namanya **pengerti**.
 
-Pengerti menarik kesimpulan dari semua yang dibayangkan dan setelah itu dihubungkan satu sama lain. Pengerti melihat keseluruhannya dari pekerjaan cipta dan nalar. Jadi **angan-angan terdiri dari cipta, nalar, dan pengerti.**
+Pengerti menarik kesimpulan dari semua yang dibayangkan dan setelah itu dihubungkan satu sama lain. Pengerti melihat keseluruhannya dari pekerjaan cipta dan nalar. Jadi\_**angan-angan terdiri dari cipta, nalar, dan pengerti.**
 
 ## 19. Bewustzijn dan bewustheid
 
@@ -192,11 +192,11 @@ Angan-angan dapat diumpamakan lampu senter. Cahaya dari lampu senter memancar ke
 
 ## 21. Pangaribawa, Prabawa, dan Kemayan
 
-mempunyai kekuatan gaib. Kelruatan gaib dari cipta adalah Pangaribawa, yang dari nalar adalah Prabawa, dan keunggulan dari pengerti disebut Kemayan atau Maya.
+Angan-angan mempunyai kekuatan gaib. Kekuatan gaib dari cipta adalah Pangaribawa, yang dari nalar adalah Prabawa, dan keunggulan dari pengerti disebut Kemayan atau Maya.
 
-Si A mempunyai **Pangaribawa**, hila tiap orang yang dekat padanya, merasa bahwa si A mempunyai jiwa yang kuat.
+Si A mempunyai **Pangaribawa**, bila tiap orang yang dekat padanya, merasa bahwa si A mempunyai jiwa yang kuat.
 
-Si B memiliki **Prabawa** atau menang Prabawa terhadap orang lain, apabila orang lain itu tidak hanya merasa bahwa jiwa si B itu kuat, tetapi bahwa orang lain itu tunduk pada petunjuk-petunjuk atau perintah yang dikatakan oleh siB. Menurutnya kepada si B tidak bersangkutan dengan hubungan hirarki jabatan.
+Si B memiliki **Prabawa** atau menang Prabawa terhadap orang lain, apabila orang lain itu tidak hanya merasa bahwa jiwa si B itu kuat, tetapi bahwa orang lain itu tunduk pada petunjuk-petunjuk atau perintah yang dikatakan oleh si B. Menurutnya kepada si B tidak bersangkutan dengan hubungan hirarki jabatan.
 
 Kekuatan **Kemayan** lebih mendalam lagi, melebihi pengaruh Prabawa. Misalnya dikatakan bahwa si C dapat memperkembangkan kemayannya. Orang lain tidak hanya tunduk saja kepada petunjuk atau tuntunan si C, tetapi si C dapat mengubah cipta orang lain, sehingga dalam angan-angan orang lain terbayang gambaran-gambaran yang dikehendaki oleh si C. Misalnya si C menghendaki supaya orang lain melihat rumah yang bagus, padahal sebenarnya tidak ada apa-apa. Bila kemayannya mempan, orang lain tadi lalu menyangka benar-benar melihat rumah bagus itu. Tiap manusia dapat memperkembangkan ketiga kemampuan istimewa ini.
 
@@ -224,13 +224,13 @@ Angan-angan harus dipakai juga untuk bekal**memimpin jiwa** dalam perkembanganny
 
 Pada dasarnya angan-angan perlu diisi pengetahuan yang sederhana, tetapi yang mencukupi untuk penyelesaian tugas kedua jurusan itu. Pengetahuan itu dengan cukup dan jelas telah tercantum dalam wasiat Pangestu: Sasangka Jati. **Sasangka Jati** adalah buku praktikum, bukan buku pelajaran. Bila kita mengerti isi buku Sasangka Jati dan menjalankannya, pasti kita memenuhi syarat-syarat untuk menjalankan tugas dua macam tadi dengan lancar.
 
-## 25. KedaulatanAku
+## 25. Kedaulatan Aku
 
 Seperti halnya dengan semua senjata yang ampuh, daya gunanya angan-angan akan berfaedah bagi umat manusia hanya bila yang mempergunakannya itu orang yang mampu pula. Jadi dalam hal ini juga ada tetapinya. Bagaimana tetapinya ini ?
 
-Yang dimaksudkan dengan tetapi-nya dari angan-angan ialah sifat-sifatnya yang dapat menghalang-halangi penerimaan pepadang dari Suksma Sejati. Sifat yang penting dari angan-angan adalah kedaulatan. Karena sifat **kedaulatan** ini angan-angan menimbulkan **Aku**-nya manusia, yang lalu dihinggapi rasa kuasa, rasa berdiri sendiri, lepas dari dunia sekitamya, dan rasa berpribadi sendiri.
+Yang dimaksudkan dengan tetapi-nya dari angan-angan ialah sifat-sifatnya yang dapat menghalang-halangi penerimaan pepadang dari Suksma Sejati. Sifat yang penting dari angan-angan adalah kedaulatan. Karena sifat **kedaulatan** ini angan-angan menimbulkan **Aku**-nya manusia, yang lalu dihinggapi rasa kuasa, rasa berdiri sendiri, lepas dari dunia sekitarnya, dan rasa berpribadi sendiri.
 
-Akunya manusia memperkembangkan kekuasaannya melalui angan-angan. Lihat saja basil-basil dari dunia pengetahuan. Akunya manusia memperkembangkan kedaulatannya di dunia besar ini. Lihat saja kedaulatan manusia dalam organisasi kenegaraan atau organisasi partai atau organisasi perdagangan.
+Akunya manusia memperkembangkan kekuasaannya melalui angan-angan. Lihat saja hasil-hasil dari dunia pengetahuan. Akunya manusia memperkembangkan kedaulatannya di dunia besar ini. Lihat saja kedaulatan manusia dalam organisasi kenegaraan atau organisasi partai atau organisasi perdagangan.
 
 Rasa kuasa dan rasa berdaulat dapat meluap, sehingga meliputi seluruh jiwanya seperti awan gelap meliputi cuaca terang. Yang dirasakan hanya kekuasaan dan kedaulatan Akunya sendiri, seperti raksasa raja Rahwana yang tidak mengakui kekuasaan dan kedaulatan di atas dunia ini, melainkan kekuasaan dan kedaulatan dirinya pribadi. **Manusia yang tersesat** demikian dengan sendirinya **tidak mengakui adanya Tripurusa**. Yang menjadi kenyataan bagi manusia sejenis ini hanya adanya pertarungan kekuatan di dunia ini saja.
 
@@ -244,9 +244,9 @@ Akunya harus **sadar (bakti), percaya** dan **taat** terhadap Tripurusa. Untuk m
 
 **Paliwara** mengandung pantangan untuk manusia supaya kekuasaan dan kedaulatannya jangan ditiup-tiup menyala-nyala tanpa tepi.
 
-Panembah, tapa brata, dan budi darma lebih-lebih merupakan jalan untuk mengurangi dan akhirnya **meniadakan Akunya manusia**. Bilamana manusia dapat menduduki derajat Suksma Se jati, lenyaplah Akunya sebagai kekuasaan dan kedaulatan angan-angan.
+Panembah, tapa brata, dan budi darma lebih-lebih merupakan jalan untuk mengurangi dan akhirnya **meniadakan Akunya manusia**. Bilamana manusia dapat menduduki derajat Suksma Sejati, lenyaplah Akunya sebagai kekuasaan dan kedaulatan angan-angan.
 
-Dengan penjelasan ini teranglah bahwa sifat kedaulatan dan kekuasaan yang toh berdaya guna sekali dalam hidup seharihari menjadi perintang yang terutama bagi manusia yang ingin menjalankan Pelajaran dari Suksma Sejati.
+Dengan penjelasan ini teranglah bahwa sifat kedaulatan dan kekuasaan yang toh berdaya guna sekali dalam hidup sehari-hari menjadi perintang yang terutama bagi manusia yang ingin menjalankan Pelajaran dari Suksma Sejati.
 
 ## 27. Macam-macam godaan, sifat 'Ku'
 
@@ -254,9 +254,9 @@ Jadi, godaan dan halangan yang terpenting mempunyai sumher dalam diri pribadi. P
 
 Bapak Pangrasa dalam hal ini telah menuntun Prabawa dan Pangaribawa. **Godaan** yang dapat dilihat di dunia luar adalah:
 
-> 1.  Klubuking iwak ing kedhung ( = melonjaknya ikan dalam kolam).
-> 2.  Krincinging ringgit ( = suara mata uang logam ).
-> 3.  Gebyaring wentis kuning ( = berkilaunya betis kuning ).
+> 1. Klubuking iwak ing kedhung ( = melonjaknya ikan dalam kolam).
+> 2. Krincinging ringgit ( = suara mata uang logam ).
+> 3. Gebyaring wentis kuning ( = berkilaunya betis kuning ).
 
 Ketiga-tiganya ini adalah perkembangan dan perlambang dari kedaulatan dan kekuasaan di masyarakat besar.
 
@@ -276,7 +276,7 @@ Dalam hal ini hendaknya kita belajar dari pengalaman sang Bratasena dalam cerita
 
 Angan-angan tidak dapat terkalahkan dengan perkosaan. Hanya dengan 100% menyerah dan dengan sadar menuju ke Tripurusa, angan-angan akan lenyap kekuasaan dan kedaulatannya, dan siswa dapat menikmati iklim Rahsa Jati dan bertemu dengan Suksma Sejati.
 
-Kita dapat menundukkan dan mengekang angan-angan bila kita senantiasa manembah kepada Tripurusa dengan rasa menyerah dan menundukkan diri kepada Suksma Sejati. Usaha untuk mempermudah ini didapat dalam **tapa brata** dan **budi darma** seluas-luasnya dan sering menjalankan hal-hal untuk keperluan umum dan orang banyak.
+Kita dapat menundukkan dan mengekang angan-angan bila kita senantiasa manembah kepada Tripurusa dengan rasa menyerah dan menundukkan diri kepada Suksma Sejati. Usaha untuk mempermudah ini didapat dalam **tapa brata** dan **budi_darma** seluas-luasnya dan sering menjalankan hal-hal untuk keperluan umum dan orang banyak.
 
 ## 29. Perasaan menerima atau menolak
 
@@ -301,7 +301,7 @@ Apalagi lalu merasa kasihan terhadap diri sendiri. Perasaannya yang negatif memi
 
 ## 31. Jengkel, dongkol, sakit hati
 
-Rasa jengkel, dongkol, sakit hati adalah perasaan negatif yang menutup pintu akan terlaksananya Tri Sila. Juga sifat mudah tersinggung berarti memperkuat kedaulatan sang Aku. Mudah tersinggung adalah suatu gejala bahwa kita terlampau tinggi menghargai diri pribadi. Sebaliknya bila kita selalu sanggup memaafkan dalam bati tiap kali rasa dongkol atau sakit hati timbul, kita secara Iekas mengbilangkan perasaan negatif dan menggantikannya dengan perasaan positif.
+Rasa jengkel, dongkol, sakit hati adalah perasaan negatif yang menutup pintu akan terlaksananya Tri Sila. Juga sifat mudah tersinggung berarti memperkuat kedaulatan sang Aku. Mudah tersinggung adalah suatu gejala bahwa kita terlampau tinggi menghargai diri pribadi. Sebaliknya bila kita selalu sanggup memaafkan dalam bati tiap kali rasa dongkol atau sakit hati timbul, kita secara Iekas menghilangkan perasaan negatif dan menggantikannya dengan perasaan positif.
 
 Perasaan positif dari Ibu terhadap anak menyanggupkan ibu berkorban untuk anak. Begitu pula halnya dengan suami istri. Kesayangan yang timbal balik membuka jalan pada suami dan istri untuk mengurangi kepentingan diri masing-masing guna kepentingan keluarga. Maka dari itu untuk kebahagiaan diperlukan perasaan yang positif. Bila perasaan negatif timbul antara suami dan istri, perlu ini segera diperbaiki dan diganti dengan perasaan positif; perlu kesayangan diperbaharui.
 
@@ -317,9 +317,9 @@ Rasa positif dengan tidak ragu-ragu menyerah adalah syarat mutlak untuk bersatu 
 
 Kalau transpirasi besar, sih pepadang banyak pula. Kalau si-siswa lebih suka malas daripada Ielah, ya inspirasinya juga hanya kedip-kedip saja atau terus tertangguhkan saja.
 
-Andaikata sih dari Sang Guru Sejati meningkatkan derajat si-siswa 10 x usahanya, maka siswa yang misalnya 1 meter majunya akan ditarik menjadi 10 meter. Siswa yang majunya 10 meter akan melangkah sampai 10 x 10 meter = 100 meter. Tetapi anugerah tidak tetap sama bagi tiap-tiap usaha. Sih dari Suksma Sejati makin besar bila usahanya makin keras. Untuk usaha yang besar misalnya, Sih Nya tidak tetap 10 x, melainkan 100 X.
+Andaikata sih dari Sang Guru Sejati meningkatkan derajat si-siswa 10 x usahanya, maka siswa yang misalnya 1 meter majunya akan ditarik menjadi_10 meter. Siswa yang majunya 10 meter akan melangkah sampai 10 x 10 meter = 100 meter. Tetapi anugerah tidak tetap sama bagi tiap-tiap usaha. Sih dari Suksma Sejati makin besar bila usahanya makin keras. Untuk usaha yang besar misalnya, Sih Nya tidak tetap 10 x, melainkan 100 X.
 
-Dengan demikian usaha yang besar yang tak kunjung padam akan sangat menguntungkan siswa yang bersangkutan. Angka- c angka tersebut tentunya tidak konkret, melainkan hanya suatu contoh saja untuk memudahkan pikiran.
+Dengan demikian usaha yang besar yang tak kunjung padam akan sangat menguntungkan siswa yang bersangkutan. Angka-angka tersebut tentunya tidak konkret, melainkan hanya suatu contoh saja untuk memudahkan pikiran.
 
 ## 34. Perasaan dan angan-angan seharusnya seimbang
 
@@ -365,9 +365,9 @@ Kembali pada perimbangan antara Suksma Sejati dengan Akunya manusia, dapat diula
 
 Yang dapat mengadakan perimbangan yang selaras antara angan-angan, perasaan dan nafsu-nafsu hanya Suksma Sejati. Manusia yang selalu dapat kontak dengan Suksma Sejati sedikit banyak menerima kekuasaan dan kebijaksanaan untuk keperluan perimbangan tersebut.
 
-Bila angan-angan dan perasaan **seimbang**, jiwa manusia menjadi tenang, tenteram. Manusia merasa pikirannya terang, hatinya enteng, lega dan bahagia, dan keinginannya tidak selalu timbul seperti cendawan di musim hujan. Mungkin manusia pada tingkatan ini tempo-tempo gusar pikirannya atau hatinya himbang, tetapi kegusaran dan kebimbangan Iekas lenyap berkat sudah cepatnya pulihnya Tri Sila.
+Bila angan-angan dan perasaan **seimbang**, jiwa manusia menjadi tenang, tenteram. Manusia merasa pikirannya terang, hatinya enteng, lega dan bahagia, dan keinginannya tidak selalu timbul seperti cendawan di musim hujan. Mungkin manusia pada tingkatan ini tempo-tempo gusar pikirannya atau hatinya bimbang, tetapi kegusaran dan kebimbangan Iekas lenyap berkat sudah cepatnya pulihnya Tri Sila.
 
-Bila pikirannya sedang kacau, perasaan dapat menenteramkannya kembali dengan jalan mendekat dan menyerah pada Suksma Sejati. Bila perasaan sedang berat dan sedih, anganangan dapat menyehatkannya lagi dengan cara sadar akan Keadilan Suksma Sejati dan menyalurkannya ke arah pengorbanan, budi darma, dan keikhlasan. Dengan demikian anganangan dan perasaan saling mengimbangi dan selaras sejajar hidupnya.
+Bila pikirannya sedang kacau, perasaan dapat menenteramkannya kembali dengan jalan mendekat dan menyerah pada Suksma Sejati. Bila perasaan sedang berat dan sedih, angan-angan dapat menyehatkannya lagi dengan cara sadar akan Keadilan Suksma Sejati dan menyalurkannya ke arah pengorbanan, budi darma, dan keikhlasan. Dengan demikian angan-angan dan perasaan saling mengimbangi dan selaras sejajar hidupnya.
 
 ## 40. Pelaksanaan Panca Sila untuk keseimbangan
 
@@ -387,9 +387,9 @@ Satu-satunya kepercayaan yang benar ialah kepercayaan yang didasarkan dan dituju
 
 Bilamana kerja sama itu dapat disebut kurang baik? Kerjasama dapat dikatakan kurang baik, bilamana angan-angan, perasaan atau nafsu-nafsu tidak menurut kemauan sang Aku.
 
-Bila manusia ingin belajar atau bekerja, tetapi angan-angan tidak suka menurut, sebaliknya: pikiran tidak berhenti melayang-layang, tidak ada konsentrasi, sering lupa akan hal-hal yang perlu diingat-ingat, dengan sendirinya sering kali timbul pikiran-pikiran yang tidak diingini atau suatu pikiran tertentu yang tidak dapat masuk akal senantiasa timbul dan mengacaukan ketenteraman; itulah keadaan di mana anganangan tidak mau menuruti kehendak Aku.
+Bila manusia ingin belajar atau bekerja, tetapi angan-angan tidak suka menurut, sebaliknya: pikiran tidak berhenti melayang-layang, tidak ada konsentrasi, sering lupa akan hal-hal yang perlu diingat-ingat, dengan sendirinya sering kali timbul pikiran-pikiran yang tidak diingini atau suatu pikiran tertentu yang tidak dapat masuk akal senantiasa timbul dan mengacaukan ketenteraman; itulah keadaan di mana angan-angan tidak mau menuruti kehendak Aku.
 
-Angan-angan demikian akan mudah terpengaruh oleh orang lain atau oleh keadaan. **Perasaan** dapat dikatakan kurang **tunduk kepada sang Akunya** manusia hila sering kali timbul marah, Iekas jengkel, mudah tersinggung, _rumangsan_, mudah putus asa dan sedih.
+Angan-angan demikian akan mudah terpengaruh oleh orang lain atau oleh keadaan. **Perasaan** dapat dikatakan kurang **tunduk kepada sang Akunya** manusia bila sering kali timbul marah, Iekas jengkel, mudah tersinggung, _rumangsan_, mudah putus asa dan sedih.
 
 ## 42. Kasihan kepada diri sendiri
 
@@ -405,9 +405,9 @@ Pada tingkatan demikian manusia biasanya menjadi bingung dan sedikit pun tidak b
 
 ## 44. Gejala-gejalanya kita dekat kepada Suksma Sejati
 
-Gejala-gejala bahwa kita telah **dekat kepada Suksma Sejati** ialah lenyapnya keinginan dan kemauan. Adanya hanya menyerah saja, tetapi rasa menyerah ini tidak disertai lumpuh aktivitas Siswa yang dekat pada Suksma Sejati tetap aktif. Di sampingnya aktif si siswa menerima dengan ikhlas apa saja yang dijumpainya. Untuk mencapai keseimbangan yang laras antara anganangan, perasaan dan nafsu-nafsu, manusia hams berpedoman **Hastasila**. Pelaksanaannya pasti harus melalui **Jalan Rahayu** dan **Panembah** dengan memperhatikan **Paliwara**.
+Gejala-gejala bahwa kita telah **dekat kepada Suksma Sejati** ialah lenyapnya keinginan dan kemauan. Adanya hanya menyerah saja, tetapi rasa menyerah ini tidak disertai lumpuh aktivitas Siswa yang dekat pada Suksma Sejati tetap aktif. Di sampingnya aktif si siswa menerima dengan ikhlas apa saja yang dijumpainya. Untuk mencapai keseimbangan yang laras antara angan-angan, perasaan dan nafsu-nafsu, manusia harus berpedoman **Hastasila**. Pelaksanaannya pasti harus melalui **Jalan Rahayu** dan **Panembah** dengan memperhatikan **Paliwara**.
 
-Sehari-hari si calon siswa hams sanggup meneliti diri sendiri, melihat kesalahan dan kekurangan diri sendiri. Ia hams membandingkan watak dan kebiasaannya dengan apa yang tercantum di dalam **Hasta Sila** dan tidak dengan sifat-sifat orang lain. Rasa kurang puas akan hasil yang dicapai harus menyertai jerih payahnya di dalam penyiswaan. Rintangan yang selalu ada ialah sifat tiap manusia untuk melihat keadaan diri pribadi lebih baik daripada kenyataan yang sebenamya, dan rasa mudah puas dengan usahanya untuk menyiswa. Kita harus waspada terhadap soal-soal ini.
+Sehari-hari si calon siswa harus sanggup meneliti diri sendiri, melihat kesalahan dan kekurangan diri sendiri. Ia harus membandingkan watak dan kebiasaannya dengan apa yang tercantum di dalam **Hasta Sila** dan tidak dengan sifat-sifat orang lain. Rasa kurang puas akan hasil yang dicapai harus menyertai jerih payahnya di dalam penyiswaan. Rintangan yang selalu ada ialah sifat tiap manusia untuk melihat keadaan diri pribadi lebih baik daripada kenyataan yang sebenarnya , dan rasa mudah puas dengan usahanya untuk menyiswa. Kita harus waspada terhadap soal-soal ini.
 
 ## 45. Harus rajin manembah
 
@@ -419,7 +419,7 @@ Sebab hanya manusia yang telah bersatu dengan Suksma Sejati saja mempunyai watak
 
 ## 46. Hasilnya Sadar- Percaya- Taat
 
-**Percaya** dan taat membawa basil sendiri-sendiri: Sadar menjelma menjadi kebijaksanaan. Manusia hams mempergunakan kebijaksanaan untuk meneliti, membersihkan diri dan menaikkan derajat kesiswaannya. Percaya membawa kekuasaan, yang harus dipergunakan untuk mengendalikan angan-angan untuk menghilangkan rasa negatif, rasa benci, sakit hati, mendongkol, putus asa, dan lain sebagainya.
+**Percaya** dan taat membawa basil sendiri-sendiri: Sadar menjelma menjadi kebijaksanaan. Manusia harus mempergunakan kebijaksanaan untuk meneliti, membersihkan diri dan menaikkan derajat kesiswaannya. Percaya membawa kekuasaan, yang harus dipergunakan untuk mengendalikan angan-angan untuk menghilangkan rasa negatif, rasa benci, sakit hati, mendongkol, putus asa, dan lain sebagainya.
 
 Akhirnya **taat** membawa kemauan manusia kepada tingkat Kehendak Suksma Kawekas. Maka dari itu, kemampuan yang timbul dari taat harus dipergunakan untuk melaksanakan cita-cita kita bersatu dengan Suksma Sejati.
 
@@ -435,7 +435,7 @@ Kemudian getaran juga sampai pada perasaan, sehingga manusia merasa senang akan 
 
 Di dalam angan-angan sendiri terjadi pergolakan antara cipta, nalar dan pengerti. Pergolakan ini akhimya menimbulkan pengertian yang jelas akan apa yang diingini. Apabila sudah demikian, pengertian yang jelas ini menggerakkan kembali nafsu keinginan, supaya lebih giat mendorongnya.
 
-Angan-angan lalu memerintah alat-alat pelaksana (tangan, kaki, pancaindra) untuk mencapai tujuan keinginan itu. Andaikan keinginan itu tercapai, perasaan menjadi gembira atau positif, tetapi bilamana yang diingini itu tidak tercapai, rusak atau mati, maka perasaan berubah menjadi negatif. Apa yang diingini lalu disimpan di dalam angan-angan yang asadar. Kalau manusia mempunyai keinginan banyak atau kuat, padahal angan-angan sebagai tempat simpanan cita-cita sudah penuh, angan-angan yang asadar lalu meluap. Meluapnya menjadi mimpi bila manusia sedang tidur, dan menjadi **lamunan** apabila manusia sedang sadar.
+Angan-angan lalu memerintah alat-alat pelaksana (tangan, kaki, pancaindra) untuk mencapai tujuan keinginan itu. Andaikan keinginan itu tercapai, perasaan menjadi gembira atau positif, tetapi bilamana yang diingini itu tidak tercapai, rusak atau mati, maka perasaan berubah menjadi negatif. Apa yang diingini lalu disimpan di dalam angan-angan yang asadar. Kalau manusia mempunyai keinginan banyak atau kuat, padahal angan-angan sebagai tempat simpanan cita-cita sudah penuh, angan-angan yang asadar lalu meluap. Meluapnya menjadi mimpi bila manusia sedang tidur, dan menjadi_**lamunan** apabila manusia sedang sadar.
 
 ## 48. Keinginan yang baik dan yang buruk
 
@@ -449,7 +449,7 @@ Karena tiap manusia mempunyai unsur suasana dan tanah, maka tiap manusia mempuny
 
 Pula Mutmainah merupakan **nafsu sosial**, ialah nafsu hidup rukun dan damai dengan sesama hidup dan suka menolong, kasih sayang, berbudi darma dan suka berkorban untuk orang lain.
 
-Nafsu Mutmainah mengurangi kedaulatan sang Aku. Jadi karena Mutmainah, sang Aku dari manusia sanggup menun dukkan dan merendahkan diri terhadap Suksma Sejati dan Suksma Kawekas.
+Nafsu Mutmainah mengurangi kedaulatan sang Aku. Jadi karena Mutmainah, sang Aku dari manusia sanggup menundukkan dan merendahkan diri terhadap Suksma Sejati dan Suksma Kawekas.
 
 Apabila seorang ibu sayang kepada anaknya, Mutmainah mendorong kepada ibu untuk sanggup berkorban buat anaknya dan mengurangi kepentingan diri sendiri terhadap kepentingan anak. Pikiran seorang ibu didorong oleh Mutmainah untuk memikirkan hal-hal yang baik saja terhadap anaknya. Sebaliknya apabila orang benci kepada musuhnya, maka yang menang adalah Lauamahnya.
 
@@ -475,19 +475,19 @@ Di dalam hidup sehari-hari ini berarti bahwa kita harus menyesuaikan hidup kita,
 
 Kita kembali kepada persoalan semula. Bagaimanakah kita dapat melemahkan Lauamah? Sekarang sudah jelas bahwa kita harus mengurangi makan, minum, tidur, sahwat, dan malas untuk melemahkan Lauamah. Tetapi di samping itu kita harus menghilangkan sifat loba, tamak, iri, aniaya, fitnah, dan lain sebagainya. Apakah hal ini berada di dalam rangka Pelajaran Suksma Sejati? ltu berarti tapa brata dan Panca Sila.
 
-Apabila kita menjalankan tapa brata, tetapi di dalam anganangan kita misalnya menganiaya, membunuh, mencekik, menggantung orang yang menyakiti perasaan kita, itu . berarti bahwa kita di satu pihak melemahkan Lauamah, tetapi di bagian yang halus memperkuat Lauamah. Akhirnya kita tidak memperoleh kemajuan.
+Apabila kita menjalankan tapa brata, tetapi di dalam angan-angan kita misalnya menganiaya, membunuh, mencekik, menggantung orang yang menyakiti perasaan kita, itu . berarti bahwa kita di satu pihak melemahkan Lauamah, tetapi di bagian yang halus memperkuat Lauamah. Akhirnya kita tidak memperoleh kemajuan.
 
 Atau bilamana kita berpuasa, tetapi kita memikirkan makanan dan minuman istimewa yang akan dinikmati nanti pada saat buka, maka sebenarnya kita sendiri meniadakan hasil dan tujuan berpuasa. Tapa brata seperti yang tersebut di atas akhimya hanya menjadi latihan lapar saja dan tidak mendekatkan diri kita kepada Sang Guru Sejati.
 
 Sekarang sudah jelas bahwa bersamaan dengan tapa brata kita harus memperdalam mengenai Hasta Sila. Faedahnya akan menjadi berlipat ganda. Pupung Lauamah lemah karena tapa brata kita mempergiat Hasta Sila.
 
-Tetapi semua ini belum mencukupi, sebab di samping melemahmah Lauamah, kita harus memperkuat Mutmainah. **Cara untuk membikin Mutmainah menjadi sentausa** ialah dengan jalan panembah dan perbuatan sosial, yakni suka menolong, berkorban, berbudi darma, kasih sayang kepada sesama hidup dan lain sebagainya. Dengan jalan demikian Mutmainah akan menjadi kuat dan Lauamah lemah dan tunduk kepada Mutmainah. Titik berat beralih kepada Mutmainah yang meneruskan kebaktian kita kepada Tripurusa. Mutmainah menjadi perahunya sang Aku untuk mengorbankan diri dihadapan Tripurusa.
+Tetapi semua ini belum mencukupi, sebab di samping melemahkan Lauamah, kita harus memperkuat Mutmainah. **Cara untuk membikin Mutmainah menjadi_sentausa** ialah dengan jalan panembah dan perbuatan sosial, yakni suka menolong, berkorban, berbudi darma, kasih sayang kepada sesama hidup dan lain sebagainya. Dengan jalan demikian Mutmainah akan menjadi kuat dan Lauamah lemah dan tunduk kepada Mutmainah. Titik berat beralih kepada Mutmainah yang meneruskan kebaktian kita kepada Tripurusa. Mutmainah menjadi perahunya sang Aku untuk mengorbankan diri dihadapan Tripurusa.
 
 ## 53. Bila Lauamah takluk, berubah sifatnya
 
 Bilamana Lauamah sudah takluk, ia berubah sifat. Sifat yang semula hanya mementingkan diri sendiri saja dan menentang Mutmainah, kemudian berubah menjadi nafsu yang hanya ditujukan untuk bertahan penderitaan dan kekuatan badan jasmani. Sifat dua ini tidak menentang Mutmainah, tetapi menolongnya dengan memperkuat toleransi untuk tahan penderitaan badan. Manusia yang telah meningkat sampai derajat kejiwaan demikian, masih makan, minum dan tidur, tetapi ini semua hanya sekedar untuk kekuatan dan kebutuhan badan yang tidak lagi membangkitkan angan-angan dan perasaan.
 
-Manusia yang derajatnya setinggi demikian tidak lagi mempunyai perasaan dan pikiran yang terombangambingkan oleh nafsu-nafsu yang masih hams dikendalikan oleh sang Aku.
+Manusia yang derajatnya setinggi demikian tidak lagi mempunyai perasaan dan pikiran yang terombang-ambingkan oleh nafsu-nafsu yang masih harus dikendalikan oleh sang Aku.
 
 ## 54. Candrajiwa atau anatomi jiwa
 
@@ -522,28 +522,28 @@ Induk Kesadaran ini tidak terbatas lagi oleh sesuatu badan jasmani, melainkan me
 
 Mengalihkan titik berat kesadaran kepada alam Sejati adalah **tujuan tiap warga Pangestu**. Diusahakan supaya titik berat kesadaran tidak kembali dan menetap pada badan jasmani kasar. Bila titik berat kesadaran pindah ke badan jasmani kasar, berarti bahwa derajat kesiswaan kita merosot.
 
-Bila titik berat pindah ke jurusan Tripurusa berarti bahwa
-derajat kejiwaan naik.
+Bila titik berat pindah ke jurusan Tripurusa berarti bahwa derajat kejiwaan naik.
 
 Dengan tidak diketahui tiap hari derajat kesiswaan kita ada naik turunnya. Dalam panembah kita mengusahakan pindahnya titik berat kesadaran kepada Alam Sejati. Tetapi titik berat kesadaran senantiasa jatuh kembali ke tingkatan yang lebih rendah. Di dalam panembah lalu dialaminya bayangan macam-macam kejadian yang timbul tenggelam, atau perasaan yang beraneka ragam meliputi hati kita. Itulah yang dinamakan: jumbal-jumbul. Panembah adalah aksen dari kehidupan kita sehari-hari.
 
-Bagaimana kita hidup sehari-hari akan nampak di dalam panembah. Panembah tidak dapat mengoreksi atau melunasi dosa dan kesalahan yang kita kerjakan sehari-hari. Tidak ada gunanya untuk 'mendobel' panembah, sebagai ganti bayaran ke- lalaian kita. Kesalahan-kesalahan atau dosa harus kita tebus de- ngan perbuatan pula, tidak cukup dengan panembah semata- mata.
+Bagaimana kita hidup sehari-hari akan nampak di dalam panembah. Panembah tidak dapat mengoreksi atau melunasi dosa dan kesalahan yang kita kerjakan sehari-hari. Tidak ada gunanya untuk 'mendobel' panembah, sebagai ganti bayaran kelalaian kita. Kesalahan-kesalahan atau dosa harus kita tebus dengan perbuatan pula, tidak cukup dengan panembah semata- mata.
 
 ## 58. Lewat Jalan Rahayu
 
-Hidup kita sehari-hari yang pada waktu-waktu tertentu diak- senkan dengan panembah, sebenarnya bertujuan untuk me- mengalihkan titik berat kesadaran ke Alam Sejati. Mengalih- kan titik berat ke arab Alam Sejati berarti adanya arus kekuatan, perhatian dan keinginan kepada Tripurusa di dalam hati sanubari kita sendiri. Arus berlawanan dengan arus keluar dari diri pribadi yang menuju kepada dunia raya. Pelaksanaan memindah titik berat kesadaran ini sudah tercantum di dalam buku wasiat Sasangka Jati bagian **Dalan Rahayu**.
+Hidup kita sehari-hari yang pada waktu-waktu tertentu diaksenkan dengan panembah, sebenarnya bertujuan untuk mengalihkan titik berat kesadaran ke Alam Sejati. Mengalihkan titik berat ke arab Alam Sejati berarti adanya arus kekuatan, perhatian dan keinginan kepada Tripurusa di dalam hati sanubari kita sendiri. Arus berlawanan dengan arus keluar dari diri pribadi yang menuju kepada dunia raya. Pelaksanaan memindah titik berat kesadaran ini sudah tercantum di dalam buku wasiat Sasangka Jati bagian **Dalan Rahayu**.
 
 Sudah diketahui bahwa apa yang tercantum di dalam bagian Jalan Rahayu itu merupakan langkah-langkah yang harus di jalankan untuk memenuhi Tri Sila dan Panca Sila. Baik Jalan Rahayu maupun Hasta Sila berpokok pada Tripurusa.
 
-Dalam pemindahan titik berat kesadaran itu, baik badan jasmani kasar maupun halus berusaha untuk membawa titik berat ter- sebut kepada Alam Sejati. Maka dari itu ada bermacam-macam panembah, yakni:
+Dalam pemindahan titik berat kesadaran itu, baik badan jasmani kasar maupun halus berusaha untuk membawa titik berat tersebut kepada Alam Sejati. Maka dari itu ada bermacam-macam panembah, yakni:
 
 - panembahnya badan jasmani kasar, dan
 - panembahnya badan jasmani halus.
-  Panembah dari badan jasmani harus dapat diperinci lagi dalam panembahnya angan-angan (**sembah cipta**) dan panembahnya perasaan (**sembah kalbu**). Bila titik berat kesadaran sudah ada di tingkatan Roh Suci, maka itu harus diteruskan ke tingkatan Suksma Sejati. Inilah **sembah rasa**.
+
+Panembah dari badan jasmani harus dapat diperinci lagi dalam panembahnya angan-angan (**sembah cipta**) dan panembahnya perasaan (**sembah kalbu**). Bila titik berat kesadaran sudah ada di tingkatan Roh Suci, maka itu harus diteruskan ke tingkatan Suksma Sejati. Inilah **sembah rasa**.
 
 ## 59. Heneng-hening
 
-Keadaan heneng hening yang dicapai di dalam panembah pada umumnya hilang lagi setelah panembah selesai. Dengan terbuka- nya pancaindera dan gerak gerik badan setelah panembah sele- sai lenyaplah keadaan heneng hening. Ini berarti bahwa titik- berat kesadaran beralih lagi ke tingkatan badan jasmani halus atau kasar. Pada hakikatnya derajat kejiwaan (baca : kesis- waan) dengan demikian merosot. Bila titik berat kesadaran te- tap ada di Alam Sejati setelah panembah selesai, suasana he- neng hening tidak hilang. Tentunya sifat dan watak orang yang selalu diliputi suasana heneng hening berbeda sekali dengan wa- tak dari orang yang titik beratnya terletak di badan jasmani kasar atau badan jasmani halus. Soal ini telah diuraikan diatas.
+Keadaan heneng hening yang dicapai di dalam panembah pada umumnya hilang lagi setelah panembah selesai. Dengan terbukanya pancaindera dan gerak gerik badan setelah panembah selesai lenyaplah keadaan heneng hening. Ini berarti bahwa titik-berat kesadaran beralih lagi ke tingkatan badan jasmani halus atau kasar. Pada hakikatnya derajat kejiwaan (baca : kesiswaan) dengan demikian merosot. Bila titik berat kesadaran tetap ada di Alam Sejati setelah panembah selesai, suasana heneng hening tidak hilang. Tentunya sifat dan watak orang yang selalu diliputi suasana heneng hening berbeda sekali dengan watak dari orang yang titik beratnya terletak di badan jasmani kasar atau badan jasmani halus. Soal ini telah diuraikan diatas.
 
 ## 60. Menghaluskan watak
 
@@ -551,7 +551,7 @@ Maka dari itu peralihan titik berat kesadaran tidak mungkin dicapai tanpa mengub
 
 Tetapi mengubah watak saja tidak cukup, sebab watak halus belum tentu mengalihkan titik berat ke Alam Sejati, ke Tripurusa yang ada pada diri sendiri. Kita ingat pada orang-orang yang menghaluskan watak, tetapi tidak percaya kepada Tripurusa, bahkan ada yang percaya kepada dewa-dewa.
 
-Kepercayaan yang mempunyai dasar arah ke luar badan jasmani, seperti percaya kepada dewa-dewa, jimat-jimat, bintang- bintang, hari baik, dan lain sebagainya mengalihkan titik berat jauh dari Tripurusa. Dewa-dewa dan lain-lain obyek kepercayaan, baik yang dapat ditangkap maupun yang tidak dapat ditangkap oleh pancaindera, letaknya di luar manusia. Dengan sendirinya titik berat kesadaran menjauhkan diri dari Tripurusa.
+Kepercayaan yang mempunyai dasar arah ke luar badan jasmani, seperti percaya kepada dewa-dewa, jimat-jimat, bintang-bintang, hari baik, dan lain sebagainya mengalihkan titik berat jauh dari Tripurusa. Dewa-dewa dan lain-lain obyek kepercayaan, baik yang dapat ditangkap maupun yang tidak dapat ditangkap oleh pancaindera, letaknya di luar manusia. Dengan sendirinya titik berat kesadaran menjauhkan diri dari Tripurusa.
 
 Dalam soal ini penghalusan budi pekerti hanya berarti bahwa caranya percaya kepada dewa-dewa dan lain sebagainya itu dihaluskan. Pelajaran dari dewa-dewa mengandung cara untuk menghaluskan budi pekerti. Pelajaran mereka juga mempunyai semacam Panca Sila. Tetapi pelajaran dari dewa-dewa tidak memenunjukkan bahwa manusia berasal dari sesuatu yang immateriil, bahwa manusia mempunyai Alam Sejati di dalam dirinya sendiri, bahwa manusia akhirnya menjadi Alam Sejati itu sendiri, yang pintu gerbangnya berada di dalam diri sendiri.
 
@@ -575,13 +575,13 @@ Sekarang kita mengerti akan **manfaatnya tapa brata**. Tapa brata mengandung keb
 
 Kalau badan jasmani kasar telah ngantuk, tetapi Tripurusa memerintahkan harus kerja, badan jasmani kasar harus melek terus ... tanpa memanggil pokrol bambunya. (Boleh menyerahkan kopi tubruk).
 
-Tapa brata bagi badan jasmani halus juga merupakan sesuatu latihan penyerahan titik berat kesadaran kepada Tripurusa. Tapa brata bagi badan jasmani halus sebenarnya bukan lagi mengurangi makan, minum, tidur dan sahwat, tetapi membe- lokkan angan-angan dan perasaan supaya selalu siap sedia menerima dan melaksanakan tuntunan dari Tripurusa.
+Tapa brata bagi badan jasmani halus juga merupakan sesuatu latihan penyerahan titik berat kesadaran kepada Tripurusa. Tapa brata bagi badan jasmani halus sebenarnya bukan lagi mengurangi makan, minum, tidur dan sahwat, tetapi membelokkan angan-angan dan perasaan supaya selalu siap sedia menerima dan melaksanakan tuntunan dari Tripurusa.
 
 ## 64. Aku yang luhur dan Aku yang rendah
 
-Jika jiwa (angan-angan, perasaan, keinginan-kemauan) tidak bersiap-siap untuk menerima tuntunan dari Tripurusa, tetapi mengurusnya badan dan kehidupannya di dunia ini banya berda- sarkan pendapat pribadi semata-mata, itu berarti bahwa Aku-nya masih termasuk derajat rendah.
+Jika jiwa (angan-angan, perasaan, keinginan-kemauan) tidak bersiap-siap untuk menerima tuntunan dari Tripurusa, tetapi mengurusnya badan dan kehidupannya di dunia ini hanya berdasarkan pendapat pribadi semata-mata, itu berarti bahwa Aku-nya masih termasuk derajat rendah.
 
-**Akunya** berbalik **menjadi luhur**, bila angan-angan, perasaan dan keinginan kemauan diarahkan ke Alam Sejati dan siap untuk merierima tuntunan dari Tripurusa. Luhur dan rendahnya Aku semata-mata ditentukan oleh kebaktiannya terhadap Tripurusa, bukannya ditentukan oleh kemahiran atau kesak- tian yang dimmkinya.
+**Akunya** berbalik **menjadi_luhur**, bila angan-angan, perasaan dan keinginan kemauan diarahkan ke Alam Sejati dan siap untuk menerima tuntunan dari Tripurusa. Luhur dan rendahnya Aku semata-mata ditentukan oleh kebaktiannya terhadap Tripurusa, bukannya ditentukan oleh kemahiran atau kesaktian yang dimilikinya.
 
 Misalnya seorang manusia memuja dewa dan memperkembangkan kekuasaan gaib, seperti dapat mengadakan sesuatu benda dengan tiba-tiba, atau dapat mempengaruhi orang lain dari jauh. Pada hakekatnya ia mempunyai Aku yang rendah, oleh sebab cara hidupnya dan kemampuannya tidak disesuaikan dengan Kehendak Tripurusa.
 
@@ -596,7 +596,7 @@ mempunyai faedahnya. Apakah itu?
 
 Kita tidak boleh beranggapan, bahwa badan jasmani itu hanya merupakan penghalang saja. Badan jasmani merupakan alat perantara Alam Sejati, jelasnya Tripurusa dengan alam unsur atau dunia besar. Dari Tripurusa, Suksma Kawekas dan Suksma Sejatilah yang mempunyai dan memegang kekuasaan atas unsur-unsur.
 
-Roh Suci tampaknya tidak mempunyai kekuasaan atas unsur-unsur. Roh Suci dapat menguasai dunia besar, bila diselubungi oleh bungkus unsur-unsur. Bungkus unsur-unsur inilah yang merupakan badan jasmani kasar dan halus. Badan jas- mani merupakan badan singgung antara Tripurusa yang tak berunsur dengan dunia besar yang disusun dari unsur-unsur. Karena Roh Suci mendapat tugas dari Suksma Sejati untuk memperkembangkan kekuasaannya di dunia ini, maka **badan jasmani** dapat dianggap sebagai **alat untuk melaksanakan tugas itu**.
+Roh Suci tampaknya tidak mempunyai kekuasaan atas unsur-unsur. Roh Suci dapat menguasai dunia besar, bila diselubungi oleh bungkus unsur-unsur. Bungkus unsur-unsur inilah yang merupakan badan jasmani kasar dan halus. Badan jasmani merupakan badan singgung antara Tripurusa yang tak berunsur dengan dunia besar yang disusun dari unsur-unsur. Karena Roh Suci mendapat tugas dari Suksma Sejati untuk memperkembangkan kekuasaannya di dunia ini, maka **badan jasmani** dapat dianggap sebagai **alat untuk melaksanakan tugas itu**.
 
 Tanpa alat itu Roh Suci tidak dapat menjalankan kekuasaannya. Makin sempurna alatnya, makin baik hasil karyanya.
 
@@ -616,7 +616,7 @@ Jadi dengan demikian **badan jasmani kita memberikan pedoman-pedoman tata cara h
 
 Bila badan jasmani kasar membiarkan nafsu Lauamah berkembang, manusia dapat terseret di dalam kegelapan. Tetapi sebaliknya nafsu Mutmainah dapat membawa manusia ke dalam keadaan bahagia.
 
-Bila badan jasmani kasar telah sementara waktu mengikuti disiplin yang dikehendaki Roh Suci, badan jasmani kasar dapat menolong kita dari kesengsaraan. Jelasnya demikian. Sering kali manusia mengandung rasa benci, dongkol, iri, dan lain sebagainya, dan dengan sendirinya lalu membayangkan di da- lam pikiran perbuatan-perbuatan yang tidak baik, sekalipun ini tidak disengaja adanya.
+Bila badan jasmani kasar telah sementara waktu mengikuti disiplin yang dikehendaki Roh Suci, badan jasmani kasar dapat menolong kita dari kesengsaraan. Jelasnya demikian. Sering kali manusia mengandung rasa benci, dongkol, iri, dan lain sebagainya, dan dengan sendirinya lalu membayangkan di dalam pikiran perbuatan-perbuatan yang tidak baik, sekalipun ini tidak disengaja adanya.
 
 Bila fantasi-fantasi itu semua benar-benar terlaksanakan, dunia menjadi kacau. Tetapi semua khayalan-khayalan itu tidak terjadi, karena badan jasmani kasar tidak melaksanakan pikiran-pikiran yang jahat itu. Dengan demikian badan jasmani kasar bertindak preventif dan menghalang-halangi agar manusia jangan jatuh ke dalam keadaan yang sesat. Ini dapat juga diartikan, bahwa badan **jasmani berlaku sebagai rem** jangan sampai derajat kesiswaan manusia terlalu merosot.
 
@@ -642,7 +642,7 @@ Di alam kafiruna tidak ada badan jasmani kasar yang mengingat-ingat tentang kesa
 
 ## 70. Angan-angan dapat menguasai badan jasmani kasar
 
-Dengan adanya badan jasmani kasar manusia masih terhitung mudah menjalankan Panca Sila, budi darma, tapa brata, panembah, daripada tanpa badan jasmani kasar. Dan semua usaha ini ditujukan untuk melaksanakan Tri Sila yang akhir- nya dipersembahkan kepada Tripurusa. Bagaimana kita dapat sampai di tujuan terakhir, Tripurusa, bilamana syarat-syarat kasar saja tidak dapat terpenuhi?
+Dengan adanya badan jasmani kasar manusia masih terhitung mudah menjalankan Panca Sila, budi darma, tapa brata, panembah, daripada tanpa badan jasmani kasar. Dan semua usaha ini ditujukan untuk melaksanakan Tri Sila yang akhirnya dipersembahkan kepada Tripurusa. Bagaimana kita dapat sampai di tujuan terakhir, Tripurusa, bilamana syarat-syarat kasar saja tidak dapat terpenuhi?
 
 Setelah uraian di atas ini kita menginsafi bagaimana faedahnya badan jasmani kasar. Maka dari itu penting sekali untuk merawatnya dengan baik-baik. Tetapi perawatan yang melebihi taraf semestinya mengandung bahaya. Maklum badan jasmani kasar itu tetap alat yang rendah. Bila dibiarkan sesuka nafsu atau dipenuhi saja permintaannya, lama kelamaan ia menuntut. Dan tuntutannya berbuntut-buntut sampai Akunya yang luhur harus bertekuk lutut. Akhirnya jiwa menjadi kalut, dan manusia hidup seperti badut. Ini harus dicegah!
 
@@ -660,27 +660,27 @@ Bilamana dalam tugas ini Akunya manusia mendengarkan dan menuruti kebutuhan bada
 
 Angan-angan melayang kemana-mana atau selalu membayang-bayangkan yang tidak semestinya dibayangkan. Perasaan bergolak, padahal ia seharusnya tenang dan keinginan-kemauan senantiasa mengharapkan penyelesaian yang diharapkan, padahal ia seharusnya melepaskan semua persoalan hidup selama panembah.
 
-Apabila Akunya manusia terlalu menyeleweng dari Tuntunan Sang Guru Sejati, maka hilangnya pengaruh dari angan-angan mulai nampak dalam·hidup sehari-hari, misalnya Akunya lekas lupa, pikiran tidak mau dipakai untuk belajar dan menunaikan tugas sehari-hari.
+Apabila Akunya manusia terlalu menyeleweng dari Tuntunan Sang Guru Sejati, maka hilangnya pengaruh dari angan-angan mulai nampakdalamhidupdup sehari-hari, misalnya Akunya lekas lupa, pikiran tidak mau dipakai untuk belajar dan menunaikan tugas sehari-hari.
 
 Perasaan sering-sering dihinggapi rasa takut, was-was, bimbang, dan lain sebagainya, justru pada waktu kita sangat memerlukan ketabahan hati. Lebih susah lagi kalau kita dilumpuhkan dengan rasa putus asa. Kita tidak ingin berbuat sesuatu apa, cita-cita hancur, yang diingini cuma Iekas mati saja. Semua ini gejala-gejala kalau Akunya manusia sudah kehilangan kebijaksanaan, kekuasaan dan wewenang. Jiwa yang demikian sudah mulai bobrok dan bangkrut dan sangat memerlukan pepadang.
 
 ## 72. Pelaksanaan Tri Sila
 
-Pepadang dapat diperoleh dengan Tri Sila : sadar, percaya dan taat kepada Tripurusa. Dalam **pelaksanaan Tri Sila**, taatlah yang penting. Ini berarti mengubah cara hidup sehari-hari, yang dimulai dengan usaha-usaha melalui badan jasmani kasar, misalnya tapa brata, menghafalkan ucapan-ucapan panembah, pangesti dan mengerjakan sembah raga, budi darma, tata susila di dalam pergaulan, patuh pada peraturan-peraturan Negara, menjauhi percekcokan dan lain sebagainya. Apa yang dikatakan di atas ini adalah usaha dari badan jasmani kasar. Jadi badan jasmani kasar merupakan pula landasan utama untuk mening- gikan derajat kesiswaan. Tanpa landasan ini segala keinginan dan maksud baik untuk mendekat kepada Sang Guru Sejati akan kandas. Landasan inilah yang harus senantiasa kita teliti dan pelihara.
+Pepadang dapat diperoleh dengan Tri Sila : sadar, percaya dan taat kepada Tripurusa. Dalam **pelaksanaan Tri Sila**, taatlah yang penting. Ini berarti mengubah cara hidup sehari-hari, yang dimulai dengan usaha-usaha melalui badan jasmani kasar, misalnya tapa brata, menghafalkan ucapan-ucapan panembah, pangesti dan mengerjakan sembah raga, budi darma, tata susila di dalam pergaulan, patuh pada peraturan-peraturan Negara, menjauhi percekcokan dan lain sebagainya. Apa yang dikatakan di atas ini adalah usaha dari badan jasmani kasar. Jadi badan jasmani kasar merupakan pula landasan utama untuk meninggikan derajat kesiswaan. Tanpa landasan ini segala keinginan dan maksud baik untuk mendekat kepada Sang Guru Sejati akan kandas. Landasan inilah yang harus senantiasa kita teliti dan pelihara.
 
 ## 73. Jiwa kita sebagai alam peralihan ke Alam Sejati
 
-**Jiwa kita** dapat dianggap sebagai 'bovenbouw' (susunan atas) dari landasan itu. Bovenbouw ini lebih halus dari landa- sannya. Karena lebih halus, juga lebih sukar diurusnya. Jiwa yang lebih halus daripada badan jasmani kasar dapat dipandang sebagai alam peralihan untuk masuk ke Alam Sejati.
+**Jiwa kita** dapat dianggap sebagai 'bovenbouw' (susunan atas) dari landasan itu. Bovenbouw ini lebih halus dari landasannya. Karena lebih halus, juga lebih sukar diurusnya. Jiwa yang lebih halus daripada badan jasmani kasar dapat dipandang sebagai alam peralihan untuk masuk ke Alam Sejati.
 
-Jiwa (angan-angan, perasaan, dan keinginan) sebagai alarn peralihan merupakan tempat latihan untuk membiasakan diri hidup di dalam alam halus. Di dalam alam peralihan ini kita me- latih dan menyempurnakan dalarn menjalankan kebijaksanaan, kekuasaan, dan wewenang yang rumit-rumit. Sebab nanti di da- lam Alam Sejati kita sebagai Suksma Sejati menjalankan ke- bijaksanaan, kekuasaan, dan wewenang atas seluruh semesta alam beserta isi-isinya.
+Jiwa (angan-angan, perasaan, dan keinginan) sebagai alam peralihan merupakan tempat latihan untuk membiasakan diri hidup di dalam alam halus. Di dalam alam peralihan ini kita melatih dan menyempurnakan dalam menjalankan kebijaksanaan, kekuasaan, dan wewenang yang rumit-rumit. Sebab nanti di dalam Alam Sejati kita sebagai Suksma Sejati menjalankan kebijaksanaan, kekuasaan, dan wewenang atas seluruh semesta alam beserta isi-isinya.
 
-Barangsiapa ingin menjadi penghuni Alarn Sejati mesti harus sudah dapat membuktikan dapat mengurus dengan baik pikiran, perasaan dan keinginan kemauan sendiri. Mula-mula manusia yang ingin mengatur alam peralihan ini perlu merasa bertang- gung jawab dulu atas segala pikiran, perasaan dan keinginan- kemauan yang ada pada dirinya sendiri.
+Barangsiapa ingin menjadi penghuni Alarn Sejati mesti harus sudah dapat membuktikan dapat mengurus dengan baik pikiran, perasaan dan keinginan kemauan sendiri. Mula-mula manusia yang ingin mengatur alam peralihan ini perlu merasa bertanggung jawab dulu atas segala pikiran, perasaan dan keinginan-kemauan yang ada pada dirinya sendiri.
 
-Tidak boleh kita melepaskan tanggung-jawab dengan menga- takan bahwa pikiran, perasaan, dan keinginan-kemauan yang aneh-aneh datangnya dengan tidak disengaja. Disengaja atau tidak disengaja, itu semua tennasuk perbuatan, sekalipun halus, tetapi tetap terhitung perbuatan.
+Tidak boleh kita melepaskan tanggung-jawab dengan mengatakan bahwa pikiran, perasaan, dan keinginan-kemauan yang aneh-aneh datangnya dengan tidak disengaja. Disengaja atau tidak disengaja, itu semua termasuk perbuatan, sekalipun halus, tetapi tetap terhitung perbuatan.
 
-Manusia yang ingin masuk ke Alam Sejati harus belajar ber- tanggung jawab, sebab Suksma Sejati itu pusat dan sumber tanggung jawab.
+Manusia yang ingin masuk ke Alam Sejati harus belajar bertanggung jawab, sebab Suksma Sejati itu pusat dan sumber tanggung jawab.
 
-Untuk menetap di Alam Sejati menjadi Suksma Sejati kita harus dapat memakai alam peralihan (medan latihan halus) se- bagai landasan baru. Dengan menginjak landasan halus ini kita betada di ambang pintu Alam Sejati.
+Untuk menetap di Alam Sejati menjadi Suksma Sejati kita harus dapat memakai alam peralihan (medan latihan halus) sebagai landasan baru. Dengan menginjak landasan halus ini kita berada di ambang pintu Alam Sejati.
 
 ## 74. Bila badan jasmani dimanjakan
 
@@ -694,9 +694,9 @@ Hidup kita harus sedemikian rupa, sehingga tingkatan Suksma Sejati tercapai untu
 
 Si-siswa yang sedang mengejar cita-cita suci dan luhur harus bijaksana sampai di mana ia dapat memenuhi tuntutan badan jasmani kasar itu. Si-siswa harus berhati-hati sekali, oleh sebab bahasa tersebut merupakan pula godaan. **Godaan** ini dapat **menghambat kemajuan kesiswaan**. Kita dapat meneliti sendiri bagaimana sukarnya untuk mengadakan putusan dalam hal ini.
 
-Misalnya : Sampai di mana kita harus atau boleh absen dalam pertemuan olah rasa, bila kita merasa sakit, lapar, Ielah, ngan- tuk, baru datang dari dinas atau perjalanan luar kota? Bilamana kita boleh membatalkan atau mengakhiri pertemuan olah rasa karena keperluan keluarga atau diri sendiri, ataupun bilamana kita sakit?
+Misalnya : Sampai di mana kita harus atau boleh absen dalam pertemuan olah rasa, bila kita merasa sakit, lapar, Ielah, ngantuk, baru datang dari dinas atau perjalanan luar kota? Bilamana kita boleh membatalkan atau mengakhiri pertemuan olah rasa karena keperluan keluarga atau diri sendiri, ataupun bilamana kita sakit?
 
-Ada kalanya si-siswa menderita sakit panas, duduk pun sakit karena kulit langsung digencet antara tulang dan kursi sampai luka-luka, lapar dan capai Ielah, tetapi godaan dari dalam ini tidak dihiraukan dan darma bakti terus dilangsungkan. Semua- semua ini dengan tujuan supaya pengorbanan menjadi sempurna. Pengorbanan baru menjadi sempurna, kalau titik berat tidak mundur lagi, bagaimanapun godaannya dari dalam.
+Ada kalanya si-siswa menderita sakit panas, duduk pun sakit karena kulit langsung digencet antara tulang dan kursi sampai luka-luka, lapar dan capai Ielah, tetapi godaan dari dalam ini tidak dihiraukan dan darma bakti terus dilangsungkan. Semua-semua ini dengan tujuan supaya pengorbanan menjadi sempurna. Pengorbanan baru menjadi sempurna, kalau titik berat tidak mundur lagi, bagaimanapun godaannya dari dalam.
 
 ## 76. Tingkatan Suksma Sejati tercapai
 
@@ -712,7 +712,7 @@ Misalnya: Sabda dari Suksma Sejati yang menyatakan supaya kita memperluas Pelaja
 
 Begitu pula Sabda untuk berbudi darma, untuk bertapa brata, untuk manembah, tidak kita taati seluruhnya, tetapi kita campur dengan pembelaan pokrol bambu kita. Ini sama saja dengan kita tunduk kepada godaan dari dalam.
 
-**Godaan dari dalam lebih berat** daripada godaan dari luar. Pada hal godaan dari luar sudah kita rasakan berat, seperti ejekan teman-teman, fitnahan, cemoohan, hinaan, penderitaan sosial dalam hal keuangan, kedudukan, kekuasaan, dan penderi- taan dalam harmoni dalam kalangan keluarga sendiri. Bila pen- deritaan dari luar ini telah dapat kita atasi, kita menghadapi godaan dari dalam yang tidak dapat dihindari lagi. Mau tidak mau si siswa harus menyelesaikan godaan dari dalam ini.
+**Godaan dari dalam lebih berat** daripada godaan dari luar. Pada hal godaan dari luar sudah kita rasakan berat, seperti ejekan teman-teman, fitnahan, cemoohan, hinaan, penderitaan sosial dalam hal keuangan, kedudukan, kekuasaan, dan penderitaan dalam harmoni dalam kalangan keluarga sendiri. Bila pen- deritaan dari luar ini telah dapat kita atasi, kita menghadapi godaan dari dalam yang tidak dapat dihindari lagi. Mau tidak mau si siswa harus menyelesaikan godaan dari dalam ini.
 
 ## 78. Wahyu Sasangka Jati
 
@@ -1065,7 +1065,7 @@ Pendidikan dengan menyediakan iklim dan pemberian contoh masuk ke dalam jiwa man
 
 Bila contoh berlawanan dengan pendidikan secara lisan, maka hasilnya akan sia-sia belaka. Untuk mencapai hasil yang sebaik-baiknya perlu iklim, contoh-contoh, dan kata-kata yang disusun dengan selaras. lklim ini sebenarnya cara pendidikan yang dilaksanakan oleh sang ibu terhadap anaknya di dalam kandungan. Pada saat itu sikap ibu terhadap si anak yang dikandung dapat dilukiskan dengan satu kata : budi luhur.
 
-## 136. Sumber ik1im rumah tangga ialah rasa kasih sayang
+## 136. Sumber iklim rumah tangga ialah rasa kasih sayang
 
 Pendidik yang pandai dan dapat berbicara lancar, akan tetapi yang melupakan faktor iklim dan contoh, adalah seperti orang yang akan menaikkan layang-layang tanpa mempunyai benang. Di dalam rumah tangga, di mana si jabang bayi terbimbing dan disiapkan untuk tugas suci di dalam masyarakat, sang ibu merupakan sendi yang utama yang bertanggung jawab atas iklim keluarga.
 
@@ -1093,7 +1093,7 @@ Kesiswaan terhadap Sang Guru Sejati tidak akan herhasil baik tanpa penghalusan h
 
 Sikap ayah dan ibu terhadap anak adalah kesempatan yang bagus sekali untuk mempercepat kesiswaan terhadap Suksma Sejati karena kasih sayang orang tua terhadap anak beserta rasa tanggung jawabnya adalah pembawaan bagi orang tua dan tidak perlu dipaksakan kepada orang tua.
 
-##140. Iklim baik: bila ayah dan ibu rukun
+## 140. Iklim baik: bila ayah dan ibu rukun
 
 Kesempatan untuk menyusun iklim rumah tangga bagi seorang ayah tidak begitu luas seperti bagi seorang ibu. Ada kalanya seorang ayah membawa suasana kantor yang panas dan penuh kesulitan-kesulitan ke dalam rumah tangga. Misalnya: seorang ayah mendapat tegoran dari atasannya yang dirasakan tidak adil, dan si ayah merasa sakit hati. Sampai di rumah secara sadar atau tidak, rasa sakit hati itu disemprotkan terhadap keluarganya, sehingga iklim rumah tangga menjadi buruk.
 
@@ -1242,3 +1242,8 @@ Maka mulailah manusia mempelajari semua ini. Dengan sen dirinya ia berkenalan de
 Dan mulailah ia membaca Arsip Sarjana Budi Santosa
 
 ## footnote
+
+```{contents}
+```
+
+
