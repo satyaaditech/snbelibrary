@@ -435,7 +435,7 @@ Kemudian getaran juga sampai pada perasaan, sehingga manusia merasa senang akan 
 
 Di dalam angan-angan sendiri terjadi pergolakan antara cipta, nalar dan pengerti. Pergolakan ini akhimya menimbulkan pengertian yang jelas akan apa yang diingini. Apabila sudah demikian, pengertian yang jelas ini menggerakkan kembali nafsu keinginan, supaya lebih giat mendorongnya.
 
-Angan-angan lalu memerintah alat-alat pelaksana (tangan, kaki, pancaindra) untuk mencapai tujuan keinginan itu. Andaikan keinginan itu tercapai, perasaan menjadi gembira atau positif, tetapi bilamana yang diingini itu tidak tercapai, rusak atau mati, maka perasaan berubah menjadi negatif. Apa yang diingini lalu disimpan di dalam angan-angan yang asadar. Kalau manusia mempunyai keinginan banyak atau kuat, padahal angan-angan sebagai tempat simpanan cita-cita sudah penuh, angan-angan yang asadar lalu meluap. Meluapnya menjadi mimpi bila manusia sedang tidur, dan menjadi_**lamunan** apabila manusia sedang sadar.
+Angan-angan lalu memerintah alat-alat pelaksana (tangan, kaki, pancaindra) untuk mencapai tujuan keinginan itu. Andaikan keinginan itu tercapai, perasaan menjadi gembira atau positif, tetapi bilamana yang diingini itu tidak tercapai, rusak atau mati, maka perasaan berubah menjadi negatif. Apa yang diingini lalu disimpan di dalam angan-angan yang asadar. Kalau manusia mempunyai keinginan banyak atau kuat, padahal angan-angan sebagai tempat simpanan cita-cita sudah penuh, angan-angan yang asadar lalu meluap. Meluapnya menjadi mimpi bila manusia sedang tidur, dan menjadi\_**lamunan** apabila manusia sedang sadar.
 
 ## 48. Keinginan yang baik dan yang buruk
 
@@ -726,21 +726,95 @@ Maka dari itu Sarjana Budi Santosa sebagai penulis pribadi dari Bapak Pangrasa, 
 
 ## 79. Sikap kita berhadapan dengan manusia yang telah mencapai kesempumaan hidup
 
+Bilamana nanti kita dapat memahami Wahyu Sasangka Jati dan dapat pula menghargai dispensasi yang dilimpahkan kepada kita sebesar-besarnya, hendaknya kita jangan lupa bahwa kita masih tetap terikat oleh Hasta Sila, Paliwara, dan seterusnya. lkatan tetap ada selama kita menjadi siswa.
+
+Bagaimana **sikap kita** nanti, bila kita **berhadapan dengan manusia yang telah mencapai tingkat Suksma Sejati = Kesempurnaan hidup?** Jawabnya mudah sekali. Bagaimana kita berhadapan dengan Suksma Sejati di dalam hati kita sendiri sekarang? Kekurangan-kekurangan kita dalam sikap terhadap Suksma Sejati sekarang akan nampak jelas nanti, bilamana kita menghadap manusia yang bertingkatan Sasangka Jati.
+
+Ini sebenamya menguntungkan kita, karena dengan demikian kita dapat mengoreksi diri sendiri. Hendaknya kita kelak dalam menghadap Sang Sasangka Jati mengadakan sikap dalam batin yang sesempurna-sempurnanya. Sikap yang sempurna itu ialah bila kita memperhatikan beberapa syarat:
+
+**Pertama:** Selama menghadap kita jangan membawa oleh-oleh bermacam-macam ceritera. Malahan sebaliknya, kita harus menyediakan tempat kosong agar diisi oleh Sasangka Jati. Ini berarti bahwa kita lebih baik mendengarkan daripada ngobrol. Bila perlu tentunya kita dapat mengemukakan ini dan itu. Sukarnya ialah untuk menentukan, apakah yang perlu dan apakah yang remeh. Karena apa yang remeh bagi yang satu, mungkin penting sekali bagi yang lain. Ini harus ditentukan sendiri-sendiri, tetapi pada umumnya dapat dikatakan bahwa soal kesiswaan adalah lebih penting daripada soal nasib kita, dan hal-hal yang menyangkut umum adalah lebih berharga daripada yang mengenai diri sendiri.
+
+**Kedua:** Kita harus meluhurkan manusia yang telah sampai pada tingkatan Suksma Sejati. Ini tidak berarti, bahwa kita melampaui batas sopan santun yang berlaku pada masa sekarang. Tidak, tetapi di dalam hati kita harus berusaha adanya rasa merendahkan diri dan berbakti kepada-Nya. Dengan sekuat tenaga kita harus menjauhkan pikiran atau perasaan yang aneh-aneh yang menyimpang dari Dasa Sila dan yang berhubungan dengan Paliwara. Pendek kata, hati dan pikiran harus dibersihkan dalam menghadap itu.
+
+**Ketiga:** Kita tidak hanya mendengarkan sabda dari manusia yang bertingkatan Suksma Sejati dengan telinga kita, tetapi kita harus menangkap sabdanya dalam hati kita masing-masing. Untuk itu kita perlu selalu meneliti hati kita dan membersihkannya. Kita tidak usah menanti-nantikan sabda apa yang akan diberikan.
+
+**Keempat:** Kita tidak boleh mengharap-harapkan hal-hal yang aneh-aneh dari manusia yang telah mencapai kesempurnaan hidup itu. Hal-hal yang aneh memang jarang sekali terjadi. Kita jangan mencoba-coba pada manusia demikian, seperti mencoba apakah manusia yang mencapai tingkatan Suksma Sejati itu benar-benar bijaksana, benar-benar mengetahui apa yang terjadi jauh atau di kemudian hari.
+
+**Kelima:** Kita sebaliknya harus bersyukur kepada Sang Guru Sejati, bahwa kita diperkenankan mengalami peristiwa yang berupa Anugerah Agung itu. Kesempatan ini kita pergunakan sebaik-baiknya untuk membersihkan diri dan bersuci.
+
 ## 80. Jiwa manusia yang memperoleh Wahyu Sasangka Jati
+
+Bagaimanakah keadaan **jiwa** dari **manusia yang memperoleh Wahyu Sasangka Jati?** Untuk menerangkan hal ini perlu kita ingat-ingat bahwa tumbuhnya jiwa, karena angan-angan berkarya. Angan-angan adalah refleksi atau bayangan dari Tripurusa. Dulu pernah dikatakan, bahwa angan-angan diberikan kepada manusia, karena manusia lupa akan kesadaran yang sejati, Rahsa Jati yang menjadi iklim Paugeran dari Suksma Kawekas. Angan-angan merupakan wakil dari Tripurusa.
+
+Dengan tercapainya tingkatan Suksma Sejati, maka Roh Suci meleburkan diri dalam Suksma Sejati. Dengan tidak adanya Roh Suci lagi, hilanglah pula Paugeran Suksma Kawekas kepada Umat-Nya bagi manusia yang bersangkutan. Dengan demikian tidak diperlukan lagi adanya angan-angan untuk mengingat-ingat lagi inti sari dari syahadat. Angan-angan juga tidak diperlukan lagi sebagai alat untuk menguasai dunia besar, karena sekarang Suksma Sejati sendirilah yang langsung mempergunakan alat-alat pelaksana seperti tangan, kaki, mulut dan lain sebagainya. Dengan dileburnya Roh Suci, maka Tripurusa tidak ada lagi. Yang ada hanya Dwi Tunggal, yang akan tetap abadi adanya.
 
 ## 81. Perasaan dan nafsu-nafsunya
 
+Bagaimana dengan **perasaan manusia yang telah sampai pada tingkatan Suksma Sejati?** Pernah dikatakan, bahwa perasaan adalah iklim yang ditimbulkan dalam pertemuan antara angan-angan dan nafsu-nafsu. Perasaan mempunyai sifat menerima dan menolak.
+
+Dengan sudah hilangnya angan-angan dan tidak adanya lagi persoalan menerima dan menolak, maka perasaan juga ikut hilang. Yang mengganti perasaan ialah suasana tenang, tenteram, bahagia dan tidak terpengaruh lagi oleh keadaan yang serba dapat berubah.
+
+**Nafsu** masih ada, tetapi nafsu tidak menggandengkan diri lagi dengan angan-angan dan perasaan, karena kedua-duanya ini tidak ada lagi. Nafsu-nafsu masih lengkap ada, hanya kekuatannya melulu dipergunakan untuk kekuatan badan. Dan kekuatan badan ini sebetulnya dikuasai oleh Kehendak dan Kekuasaan Suksma Sejati.
+
 ## 82. Mati selama hidup = Kesempurnaan hidup
+
+Oleh sebab manusia yang mencapai tingkatan Suksma Sejati senantiasa menghadap pada Suksma Kawekas, maka soal makan, minum, dan tidur terlupakan. Lapar, Ielah, ngantuk, dan lain sebagainya sama sekali tidak mempunyai daya ganggu lagi, sekalipun masih terasakan pula.
+
+Yang dikatakan manusia hidup itu ialah karena angan-angannya berkembang, perasaannya selalu menyesuaikan diri dengan sekitarnya dan nafsu-nafsu senantiasa menimbulkan keinginan dan kemauan. Jadi, selalu ada pergolakan dan pertumbuhan.
+
+Dengan dicapainya tingkatan Suksma Sejati berakhirlah segala pergolakan dan pertumbuhan. Tujuan telah tercapai. Semua usaha berhenti dengan sendirinya. Berdasarkan ini semua dapat dipinjam istilah, bahwa manusia yang mencapai tingkatan Suksma Sejati juga telah **mati selama hidup.** Hidup ini dalam arti badan jasmani masih lengkap susunan dan daya kerjanya.
+
+Suksma Sejati adalah sumber dan asal mula Hidup. Suksma Sejati berarti pula Hidup yang Sejati. Kesimpulan ini semua ialah bahwa barang siapa mencapai derajat Suksma Sejati, ia memperoleh **kesempumaan hidup.** Sekaligus ia mengalami mati selama (badan jasmaninya) masih hidup.
+
+Mati selama hidup agak berbeda dengan kesempurnaan mati. **Kesempumaan mati** adalah tercapainya persatuan antara Roh Suci dengan Suksma Sejati pada saat badan jasmaninya menghembuskan napas yang penghabisan, alias mati biasa, dan siap untuk ditanam.
+
+Badan jasmani manusia yang mencapai kesempurnaan hidup masih dapat berlangsung selama beberapa tahun sampai rusak dan tidak terpakai lagi. Baru itu badan jasmani akan diletakkan oleh Sang Suksma Sejati dan diizinkan untuk dikubur
 
 ## 83. Kata-kata dari manusia yang bertunggal
 
+Di atas dikatakan bahwa manusia yang mencapai derajat Suksma Sejati dengan bertunggal dengan Sang Suksma Sejati untuk selama-lamanya, masih dapat hidup terus selama beberapa tahun. Tidak menjadi syarat bahwa badan jasmaninya dari manusia seperti yang dimaksudkan di atas pada saat panunggal lalu tidak dipakai lagi dan terus mati. Memang benar, bahwa Sang Suksma Sejati hidupnya tidak terikat oleh benda dan badan apa pun. Tetapi, badan jasmani manusia mempunyai karma sendiri yang berbeda dari karma jiwanya manusia yang mendiaminya. Matinya badan jasmani ditentukan oleh Hukum Abadi dari Suksma Kawekas, dan nasib jiwa manusia pun terikat oleh hukum abadi itu juga.
+
+Bila umumnya orang meninggal dunia, badan jasmaninya rusak dan lekas hancur, sedangkan jiwanya hidup terus melayang-layang di dalam alam halus, yaitu alam kafiruna.
+
+Sebaliknya bila manusia bertunggal dengan Suksma Sejati selama hidup ini, jiwanyalah yang hilang tidak membekas, sedangkan badan jasmaninya tetap utuh. Karena badan jasmaninya masih mempunyai karma untuk hidup terus, tetapi jiwanya sudah mati, lalu yang menggerakkan badan dalam kehidupannya ialah Suksma Sejati pribadi. Tuntunan Suksma Sejati dapat diterima langsung oleh badan jasmani.
+
+Pada manusia biasa Tuntunan Suksma Sejati tidak dapat langsung diterima oleh badan jasmami, karena angan-angan, perasaan, keinginan, dan kemauan yang beraneka-ragam menghalang-halanginya.
+
+Untuk hidup di dalam masyarakat perlu bergeraknya badan dan alat-alat pelaksana dan pancaindera. Semua ini mendapat tuntunan dan digerakkan langsung oleh Suksma Sejati. Karena semua Sabda dan Kebijaksanaan dari Sang Guru Sejati itu mempunyai maksud, maka gerak-gerik, roman muka dan **kata-kata dari seseorang yang telah bertunggal dengan Suksma Sejati** ada maksudnya pula. Tidak akan Sang Guru Sejati iseng-iseng bersenda gurau dan berkelakar.
+
 ## 84. Kebijaksanaan yang sempurna
+
+Andaikan kita mendapat kesempatan untuk menghadap manusia yang telah bertunggal dengan Suksma Sejati, dengan sendirinya kita masuk ke dalam lingkungan Kasih-sayang-Nya, apabila kita mengharapkan Kasih-sayang-Nya. Jadi kita harus membuka hati kita dengan cara berbakti pada-Nya. Bila menghadapnya itu hanya untuk mengetahui saja, maka keinginan untuk mengetahui itulah yang menghalang-halangi kita sendiri untuk memetik buah yang sebesar-besamya dari dekatnya bersama-sama.
+
+Manusia yang telah bertunggal dengan Suksma Sejati dengan sendirinya mengetahui apa yang terkandung di dalam hati dan angan-angan kita, lebih dari kita sendiri. Karena sifat Suksma Sejati itu Pepadang, maka apa yang diucapkan oleh manusia yang telah bertunggal itu akan selalu ada hubungannya dengan keadaan kita, agar kita dapat maju di dalam kesiswaan. Sedang Suksma Sejati tidak akan bersabda yang hanya bersifat pengetahuan saja bagi kita. Apalagi bercakap-cakap secara omong kosong tidak akan terjadi. Bila kita mau meneliti saja, kita akan mengetahui bahwa manusia yang belum sampai pada pamudaran, tetapi saatnya sudah mendekat, toh sudah diisi **kebijaksanaan yang sempurna** oleh Suksma Sejati.
 
 ## 85. Mati tidak sempurna
 
+Bagaimana perbedaannya antara manusia yang telah bertunggal dengan Suksma Sejati dan manusia yang **mati secara tidak sempurna?** Yang mati secara tidak sempurna, setelah meninggalkan badan jasmani, masih hidup terus seperti belum mati, hanya tidak ada alat-alat pelaksana dan pancaindera yang kasar. Manusia yang mati belum sempurna masih mempunyai Aku, masih mempunyai akal, pikiran, dan nalar, masih mempunyai perasaan yang bergolak, masih mempunyai keinginan dan kemauan yang bermacam-ragam.
+
+Karena masih ada angan-angan, perasaan dan nafsu-nafsu, maka apabila semua itu tidak selaras antara satu dengan yang lain, akan timbul ketegangan, dan Akunya akan menderita. Seperti manusia yang masih hidup, orang yang mati belum sempurna masih dapat melamun, dapat berpikir, dapat terombang-ambing, sedih, gelisah dan ingin ini dan itu tidak keruan. Semua ini tidak akan terjadi pada manusia yang telah bertunggal dengan Suksma Sejati.
+
+Apa yang kita sebut sehari-hari jiwa, malahan sudah tidak ada lagi pada manusia yang mencapai tingkatan kesempumaan hidup. Karena tidak ada angan-angan, perasaan dan keinginankemauan lagi, maka tidak akan ada timbul ketegangan. Adanya hanya tenteram dan tenang saja.
+
 ## 86. Di dalam alam kafiruna
 
+Badan jasmani dari manusia yang telah bertunggal dengan Suksma Sejati masih makan, minum, dan tidur. Sebaliknya manusia yang mati tidak sempuma tidak makan, minum dan berbuat seperti sebelum meninggal dunia, karena badan jasmani kasar tidak ada. Badan jasmani halus yang tetap terdiri dari empat unsur membawa nafsu-nafsunya seperti sebelum mati.
+
+Tripurusa masih terbungkus oleh badan jasmani yang halus itu terbawa ke mana-mana bersama jiwanya. Karena badan jasmani halus disusun oleh keempat unsur seperti halnya dengan badan jasmani kasar, maka semua nafsu masih lengkap pada manusia yang telah meninggal dunia dan berada di dalam alam **kafiruna.** Almarhum masih mempunyai keinginan dan kemauan macam-macam, masih terbawa-bawa oleh nafsu makan, minum, tidur, masih mau mengerjakan ini dan itu. Hanya sebagian dari keinginan dan kemauan itu tidak terlaksana, karena tidak adanya badan jasmani kasar. Mau minum, akan tetapi gelas yang berisi air tidak dapat dipegang dan aimya tidak dapat ditelan, karena badan jasmani kasar tidak ada. Demikian halnya dengan makan, bekerja, dan lain sebagainya yang memerlukan badan jasmani kasar.
+
+Dapatnya manusia hidup lama di dalam alam kafiruna itu disebabkan karena badan jasmani halus sanggup untuk mendapatkan tambahan unsur tanpa makan, minum, bernapas seperti dengan badan jasmani kasar. Badan jasmani halus tidak rusak atau sakit, sekalipun tidak makan, minum dan bernapas.
+
+Pancaindra yang halus masih lengkap. Karena itu yang telah mati dapat menangkap dunia sekitamya. Pikiran dan ingatan masih utuh, yang mengakibatkan "yang mati" masih dapat berpikir dan mengingat-ingat keadaan yang lampau.
+
+Perasaan masih ada. Manusia yang masuk ke alam kafrruna terombang-ambing oleh gelombang perasaan seperti sedih, takut, waswas, gelisah, gembira, benci, kecewa, suka ria dan lain sebagainya. Akunya masih ada.
+
 ## 87. Memulai hidup baru ( dilahirkan kembali)
+
+Karena semua alat masih lengkap, maka manusia yang telah meninggal tetap berkewajiban untuk berbakti kepada Suksma Sejati. Tadi dikatakan, bahwa Tripurusa masih terbungkus di dalam badan jasmani halus alias jiwa yang melayang-layang. Karena itu, semua tingkatan panembah masih harus dikerjakan. Panembah inilah yang akan membawa almarhum ke dalam keadaan heneng hening.
+
+Dari situ manusia diperkenankan **memulai hidup baru** dengan badan jasmani kasar yang baru pula. Badan jasmani halus terbawa lagi masuk ke dalam badan jasmani kasar yang baru. Badan jasmani halus itulah yang menyimpan segala pengalaman dan membawakan karma yang harus dilalui.
+
+Jadi bagi manusia yang mati secara tidak sempuma yang tetap utuh adalah badan jasmani halus, yang mati badan jasmani kasar. Bagi manusia yang bertunggal dengan Suksma Sejati badan jasmani kasarlah yang masih langsung hidup, dan badan jasmani halus atau jiwanya lebur tak terpakai lagi.
 
 ## 88. Kesurupan oleh sesuatu dewa
 
@@ -925,23 +999,77 @@ Sarjana Budi Santosa menjalankan tugasnya sebagai panitera pribadi dari Bapak Pa
 
 ## 108. Berhadapan dengan manusia yang telah bertunggal
 
+Orang harus membiasakan diri dalam **berhadapan dengan manusia yang telah bertunggal** dengan Suksma Sejati, karena ia berhadapan dengan manusia yang tidak mempunyai angan-angan dan tidak mempunyai perasaan lagi seperti biasa. Tidak adanya angan-angan dan perasaan tidak berarti bahwa manusia yang bertunggal itu diam saja seperti patung yang tempo-tempo hanya bersuara saja. Tidak demikian halnya. Sekalipun tidak berangan-angan dan berperasaan, tetapi manusia yang mencapai pamudaran itu memiliki kebijaksanaan sempurna dan rasa sayang yang tidak membeda-bedakan terhadap semua makhluk.
+
+Pembicaraan manusia yang telah bertunggal dengan Suksma Sejati selalu tepat mengenai inti sari pokok persoalan, tidak akan melantur menyimpang ke mana-mana. Tidak akan ada mat-matan ngobrol yang tidak berdayaguna sampai jauh malam, sekalipun berdekatan dengan manusia demikian benar nikmat terasakannya.
+
 ## 109. Siswa yang betul-betul ingin mendekat
+
+Bagi yang waspada akan mudah terasakannya perubahan dalam jiwanya sendiri, bila berdekatan dengan manusia yang telah bertunggal dengan Suksma Sejati. Apa yang dimaksud dengan waspada di sini ialah para **siswa yang betul-betul ingin mendekat** kepada Sang Guru Sejati dan meneliti keadaan diri sendiri. Keinginan mendekat ini memungkinkan jiwanya dipengaruhi oleh manusia yang telah bertunggal dengan Suksma Sejati sedemikian rupa sehingga titik berat beralih mendekat kepada Tripurusa. Dengan sendirinya angan-angan, perasaan dan nafsu menjadi tenteram, dan hubungan antara ketiga kekuatan ini harmonis adanya.
+
+Akhirnya jiwa seluruhnya menjadi terang dan seolah-olah tidak ada persoalan lagi yang menimbulkan bermacam-macam ketegangan. Bila kita bercakap-cakap dengan manusia yang telah bertunggal dengan Suksma Sejati dan pada suatu ketika seolah-olah ada persimpangan faham, itu pasti bahwa kitalah yang kurang mengerti persoalannya. Segera kita harus menyelidiki diri sendiri untuk dapat mengerti persoalannya.
+
+Tidak hanya mengenai soal-soal umum, mengenai diri kita sendiri pun lebih dimengerti oleh manusia yang telah bertunggal dengan Sang Guru Sejati daripada oleh kita sendiri.
+
+Apa yang diucapkan dan diperbuat oleh manusia yang mencapai pamudaran selalu mengandung maksud untuk menuntun kita; selalu ada daya didik bagi kita. Kita jangan lupa bahwa apa yang datang pada kita itu Keadilan Suksma Kawekas, dan kita harus bersikap sadar sebagai Siswa Sang Guru Sejati, dan memohon kepada Suksma Sejati supaya kita kuat untuk menerima keadilan Suksma Kawekas dan kemudian berbudi darma terhadap masyarakat.
 
 ## 110. Mencari-cari kekeliruan pada orang yang bertunggal
 
+Tidak jarang kita **mencari-cari** kesalahan, kekurangan atau **kekeliruan pada orang yang telah mencapai tingkatan Suksma Sejati.** Ini suatu tanda bahwa kita tidak mau kalah, dan Aku kita tidak mau menyerah bulat-bulat kepada Suksma Sejati.
+
+Bila demikian, kita harus menghilangkan sifat mencari-cari kesalahan itu. Juga ada kalanya kita merasa tersinggung oleh ucapan atau perbuatan manusia yang telah sampai pada pamudaran. Kita tidak dapat mengatakan bahwa ucapan atau perbuatan tadi tidak disengaja dilancarkan, karena segala sesuatu yang dilaksanakan oleh manusia yang telah bertunggal dengan Suksma Sejati itu selalu terjadi dalam keadaan disadari penuh. Perbuatan dilancarkan tidak untuk menyinggung, tetapi mengandung arti tuntunan dan pendidikan.
+
+Dalam menerima tuntunan dan pendidikan ada kalanya timbul perasaan negatif, karena kita merasa kedaulatan kita terlanggar, dan kita tersentuh tepat pada tempat lemah kita. Biasanya tempat lemah ini adalah kekurangan-kekurangan kita, yang kita sembunyikan rapih-rapih. Kita harus menghilangkan rasa tersinggung dan dongkol itu dengan rasa menyerah dan rela untuk dituntun, bagaimana pun beratnya dan dengan pikiran, bahwa kita ingin maju dalam kesiswaan kita. Suksma Sejati menuntun dan mendidik kita, supaya si siswa kelak menduduki tempat Guru dan Penuntun yang Sejati, supaya bertunggal dengan Suksma Sejati.
+
+Apabila kita toh tidak mengerti persoalan yang disampaikan kepada kita, hendaknya kita terima saja sebagai sesuatu yang nyata datang dari Suksma Sejati.
+
 ## 111. Suka mengemukakan pendapat dan prestasi
+
+Soal halus dan yang memang sukar untuk diteliti sebagai sesuatu kekurangan ia1ah bahwa kita suka **mengemukakan pendapat dan prestasi** kita di samping pendapat dan prestasi dari manusia yang telah bertunggal dengan suksma sejati. Bila ada sesuatu prestasi yang dikerjakan oleh manusia yang telah bertunggal dengan suksma sejati, kita lalu siap mengemukakan prestasi kita yang mirip atau sederajat atau sejenis dengan perbuatan yang dimaksud itu.
+
+Atau andaikata sedang dibicarakan sesuatu soal, manusia yang telah bertunggal dengan Suksma Sejati menyatakan pendapatnya, janganlah kita tergesa-gesa mengemukakan pengertian kita, yang berlainan dengan pendapat pertama tadi.
+
+Lebih baik kita merenungkan pendapat pertama itu, karena itu ialah pendapat Suksma Sejati dan mengandung pelajaran pula bagi kita. Kita ini bukan apa-apa bila dibandingkan dengan manusia yang telah bertunggal dengan Suksma Sejati, dan bukan apa-apa bila tidak ada manusia yang telah bertunggal dengan Suksma Sejati di samping kita yang melindungi dan menuntun kita.
 
 ## 112. Pengampunan dosa
 
+Mungkin kita mengetahui bahwa kita berhadapan dengan manusia yang telah bertunggal dengan Suksma Sejati dan mengetahui pula bahwa pemberian ampun oleh manusia tersebut sama saja seperti penebusan dosa oleh Suksma Sejati, dan kita tergesa-gesa mohon kepadanya supaya diampuni dosa kita.
+
+Jangan kecewa, kalau **pengampunan dosa** itu diselubungi kata-kata supaya kita memperluas Pelajaran Sang Guru Sejati seperti yang telah diabadikan di dalam buku Sasangka Jati. Itulah pengampunan dosa yang cepat.
+
 ## 113. Pujaan
 
-## 114. SaJjana Budi Santosa
+Karena para siswa telah membiasakan diri hingga mendalam mengenai **pujaan** terhadap Suksma Sejati, tidak mengherankan dan mudah dimengerti, apabila rasa memuja ini timbul pada waktu siswa berhadapan dengan manusia yang telah bertunggal dengan Suksma Sejati. Sekalipun pujaan ini ditujukan kepada Suksma Sejati, tetapi karena manusia yang dihadapi itu telah bertunggal dengan Suksma Sejati, maka ada kalanya pujaan ditujukan kepada manusianya itu. Ini bukan suatu kekeliruan. Selama manusia tersebut masih hidup dan berada di mukanya, para siswa harus tetap meneliti, apakah mereka masih membayangkan bentuk badannya atau roman mukanya, bila sedang manembah seperti biasa; belakangan inilah yang keliru.
+
+Kalau kita memang benar-benar merendahkan diri terhadap dan menjunjung tinggi manusia yang telah bertunggal dengan Suksma Sejati kita akan diberi pepadang oleh Suksma Sejati, bahwa di dunia ini tidak ada seorangpun yang lebih pantas diberi penghormatan setinggi-tingginya daripada manusia yang telah mencapai pamudaran.
+
+## 114. Sarjana Budi Santosa
+
+Cahaya di dalam batin Bapak Pangrasa, yang dipandang oleh **Sarjana Budi Santosa** dan hingga kini menjadi pedomannya, makin lama makin tambah besar dan terang. Cahaya ini tidak menyilaukan dan mempunyai daya penenteram. Tidak ada lelahnya mata Sarjana Budi Santosa dalam memandang cahaya tersebut, dan tangannya terus menulis dengan kencangnya tanpa berhenti-henti. Bagaikan air yang mengalir kata-kata itu menetes dari pena Panitera pribadi Bapak Pangrasa.
+
+Warna cahaya adalah hijau muda kekuning-kuningan. Ketika cahaya menjadi besar dan terang, hijaunya makin hilang, dan kuningnya bertambah putih. Kini cahaya itu hampir-hampir mendekat kepada menyilaukan. Besarnya cahaya menyebabkan batas-batas bentuk badan Bapak Pangrasa makin lama rnakin tidak jelas. Akhirnya cahaya itu meluap dan menenggelamkan bentuk pribadi Bapak Pangrasa. Ketika pribadi Bapak Pangrasa lenyap, tinggal cahaya saja yang meluas tidak ada batasnya, dan Sarjana Budi Santosa ikut diliputinya. Sekarang tidak ada arah yang dipandang oleh Sarjana Budi Santosa, karena Bapak Pangrasa tidak nampak lagi. Tetapi cahaya yang meliputi Sarjana Budi Santosa terus merembes ke dalam.
+
+Mulai saat itu ada cahaya kecil yang bersinar di dalam batinnya Sarjana Budi Santosa sendiri. Cahaya ini warnanya hijau kebiru-biruan. Tempo-tempo cahaya ini terang, tetapi tidak jarang ia menjadi kecil, seperti pelita yang hampir-hampir mati karena tertiup angin. Sarjana Budi Santosa bergembira sekali dengan adanya cahaya ini, dan bersyukur ke hadirat Suksma Sejati, bahwa ia diberi pepadang yang menuntun dia untuk melanjutkan tugasnya.
 
 ## 115. Bapak Pangrasa pergi
 
-## 116. Bahasa jiwa
+Maka sekarang yang dipandang hanya cahaya itu saja yang ada di dalam batinnya sendiri. Itulah kini yang menjadi pedoman yang ia tidak menduga memperolehnya. Lagi pula ia ditinggali oleh Bapak Pangrasa sebuah segel dari batu. Ini ada hubungannya dengan tugas panitera. Segel dari batu itu supaya dipergunakan agar kertas-kertas yang penuh isi tulisan tidak kabur beterbangan ke mana-mana, agar supaya tulisan-tulisan itu ada beratnya.
+
+Ke mana **Bapak Pangrasa** tadi **perginya?** Di mana ia akan dicarinya? Sarjana Budi Santosa menanyakan kepada siapa saja yang dijumpainya, tetapi tidak ada seorang pun yang dapat menjawabnya. Anehnya, Sarjana Budi Santosa masih selalu merasa dekat pada Bapak Pangrasa.
+
+Setelah kehabisan akal, Sarjana Budi Santosa ingat akan peristiwa lenyapnya Bapak Pangrasa, karena meluasnya cahaya yang berada di dalam batinnya. Mungkin Sarjana Budi Santosa dapat bertemu dengan Bapak Pangrasa dengan jalan memelihara dan membesarkan pelita yang berada di dalam batinnya sendiri. Makin banyak dari cahaya itu diberikan kepada orang lain, tidak makin kecil, melainkan tambah besar dan terang cahaya itu. Nah, sekarang timbul suatu tekad pada Sarjana Budi Santosa. Cahaya di dalam batinnya itu harus menjadi besar, maka dilanjutkannya darmanya sebagai penulis.
+
+# 116. Bahasa jiwa
+
+Hanya dengan kata-kata, baik yang diucapkan maupun yang ditulis, ia dapat menyampaikan Pepadang dari Suksma Sejati kepada sesama manusia. Adakah jalan lain? Ya, tentu. Segala gerak-gerik, tingkah-laku, budi bahasa seseorang merupakan suatu **bahasa jiwa** untuk menyampaikan Pepadang dari Suksma Sejati.
+
+Dengan tidak diinsafi, bahasa jiwa itu merupakan perantara pepadang. Bahasa jiwa ini lebih tua dan lebih lengkap dari bahasa kata-kata, dan tidak terikat oleh batas-batas suku, daerah atau kebangsaan. Bahasa jiwa menyampaikan isi hati kita seutuhnya kepada dunia luar, tidak dikurangi dan tidak ditambahi.
+
+Bahasa kata-kata ada kalanya menyembunyikan isi hati kita, ada kalanya menyampaikan sesuatu yang tidak ada kepada orang lain. Dalam bahasa jiwa kita tidak perlu menyusun kalimat-kalimat yang bagus. Cukup kita mengisi hati kita dengan Paugeran Suksma Kawekas kepada Umat-Nya dan dengan Tri Sila.
 
 ## 117. Tuntunan diterjemahkan melalui tiga jurusan
+
+Tentunya tidak ada cara lain daripada melalui bahasa jiwa. Sungguh masih ada lagi suatu jalan, yakni melalui cara yang dijalankan oleh Bapak Pangrasa. Menyampaikan pepadang dengan jalan ini malahan lebih besar dan luas potensinya dari yang lain-lain. Cara ini tidak terikat oleh tempat dan waktu: berarti, dapat dikerjakan dari jauh, dan pada saat dan zaman apa saja. Jalan ini dapat ditempuh, bilamana kesadaran yang ada pada kita meluap keluar dari kita pribadi, dan meluas kepada siapa saja yang akan diberi tuntunan. Cara ini adalah cara yang sempurna dan pasti sampai pada alamat yang ditujunya. Mau tidak mau alamat yang dituju tentu menerimanya, karena cara ini tidak perlu mempergunakan pancaindra untuk menangkapnya. Dengan jalan yang dipakai oleh Bapak Pangrasa ini, **tuntunan** langsung mengenai Akunya manusia Tuntunan kemudian diterjemahkan oleh si penerima **melalui tiga jurusan.**
 
 ## 118. Jurusan pertama: melalui angan-angan
 
@@ -1241,9 +1369,6 @@ Maka mulailah manusia mempelajari semua ini. Dengan sen dirinya ia berkenalan de
 
 Dan mulailah ia membaca Arsip Sarjana Budi Santosa
 
-## footnote
-
 ```{contents}
+
 ```
-
-
