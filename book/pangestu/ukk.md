@@ -1,4 +1,21 @@
 # ULASAN KANG KELANA
+
+```{figure} coverbk/under-construction-snb.png
+:alt: underconstruction
+:width: 200px
+:align: center
+
+```
+
+```{admonition} This Book is Still Under Heavy Development
+:class: warning
+
+<mark>Progress: Input Data, Format & Typo Checking</mark>
+
+***Buku masih dalam tahap dalam proses penyusunan, sehingga mungkin masih banyak ditemukan typo. Mohon di maklumi ya ...***
+
+```
+
 Oleh SOEWONDO\
 PAGUYUBAN NGESTI TUNGGAL \
 JAKARTA, 1990

@@ -1,5 +1,20 @@
 # WAHYU SASANGKA JATI
 
+```{figure} coverbk/under-construction-snb.png
+:alt: underconstruction
+:width: 200px
+:align: center
+
+```
+
+```{admonition} This Book is Still Under Heavy Development
+:class: warning
+
+<mark>Progress: Input Data, Format & Typo Checking</mark>
+
+***Buku masih dalam tahap dalam proses penyusunan, sehingga mungkin masih banyak ditemukan typo. Mohon di maklumi ya ...***
+
+```
 ## 1. SOAL NAMA
 
 Wahyu Sasangka Jati adalah sama dengan wahyu Kristus atau wahyu Illahi.
@@ -144,3 +159,7 @@ Pilih manusia yang mempunyai mata untuk melihat, telinga untuk mendengar, dan ha
 Tetapi, akhirnya semua tergantung dari Sang Suksma Sejati, siapakah yang akan memetik manfaatnya dari turunnya Wahyu Sasangka Jati.
 
 Satuhu.
+
+
+
+

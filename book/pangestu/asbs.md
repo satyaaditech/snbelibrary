@@ -1,5 +1,23 @@
 # ARSIP SARJANA BUDI SANTOSA
 
+```{figure} coverbk/under-construction-snb.png
+:alt: underconstruction
+:width: 200px
+:align: center
+
+```
+
+```{admonition} This Book is Still Under Heavy Development
+:class: warning
+
+<mark>Progress: Input Data, Format & Typo Checking</mark>
+
+***Buku masih dalam tahap dalam proses penyusunan, sehingga mungkin masih banyak ditemukan typo. Mohon di maklumi ya ...***
+
+```
+
+
+
 Oleh: Prof. Dr. dr. R. SOEMANTRI HARDJOPRAKOSO (Mayor Jenderal TNI)
 
 Untuk kepentingan Prabawa dan Pangaribawa beserta teman-temannya, Bapak Pangrasa dari Bawa Raos ing Salebeting Raos memanggil paniteranya pribadi: Sarjana. Waktu Sarjana masih ngenger (menumpang) di pondok pamannya di Timuran (Solo) diberi tambahan nama sehingga menjadi Sarjana Budi Santosa.
