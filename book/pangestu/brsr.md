@@ -357,7 +357,216 @@ Apa kang wus dadi kekencenganing ati lan tekadmu kang tumuju marang gegayuhan ut
 Sadherek Prabawa njenger kadya tugu sinukarta kanthi kumembeng ing waspa, ing semu kawistara nalangsa, dene tansah kawiyak kalintuning tindak. Sadherek Pangaribawa sumela kanthi tanduk ingkang susila anoraga:
 "Bapak, kula keparenga nyuwun priksa bab lampah pamudharan ingkang dados 'kuncining pura panunggal'. Kejawi kados ingkang sampun kadhawuhaken Bapak kala wau, punapa wonten lampah sanesipun. Anggen kula nyuwun priksa bab punika ing pangangkah namung kenginga kangge tetimbangan lampah ingkang pundi ingkang laras kalayan kekiyataning jiwa raga kula."
 
+## XV. WARNA-WARNANING PIWULANG PANUNGGAL
 
+Bapak Pangrasa:
+"Mangertia putraku Pangaribawa, manawa piwulang panunggal iku dening para winasis, manut pangrunguku katatar ana patang tataran, kang beda-beda lakune lan sarat-sarate, yaiku:
+1. Manunggal sarana ulah semedi utawa tafakur (makripat ing Pangeran).
+2. Manunggal sarana panggawe, yaiku manunggal sarana nunggali afngaling (pangorbananing) Pangeran.
+3. Manunggal sarana nunggali sifat-sifating Pangeran.
+4. Manunggal sarana ulah tapa brata kanggo nelukake wataking Aku kang kumaluhur kumawasa iku.
+
+Dene kahanane para marsudi kang wus tumeka ing panunggal iku dening para winasis kasanepakake kanthi pasemon:
+
+'warangka manjing curiga', 'kodhok ngemuli lenge', kang ndarbeni teges 'ngraga suksma' utawa 'abadan suksma' (asarira suksma) yaiku pamoring kawula Gusti.
+
+Saweneh ana kang darbe pangira lan panganggep manawa 'ngraga suksma' iku suksmane lolos saka badan wadhag, lan banjur nyumurupi gumlintinging badane wadhag kang tininggal. Sumurupa, panganggep kang kaya mangkono iku kleru lan bakal kesasar lakune.
+
+Ing antarane para winasis ana kang aweh wejangan bab ilmu pamudharan utawa panunggal, kang winedharake kanthi ngandhar-andhar angendhukur, muluk, lan dakik-dakik tetembungane, pilih jalma kang bisa nampa (mangerti). Uga katerangake kepriye kahanane kang sanyata tumrap kang wus tumeka ing pamudharan utawa panunggal.
+
+Tumrap para marsudi kang mursid, yaiku kang limpad ing budi, bisa milah-milahake ing ngatasing dalan lan panggonan kang tinuju. Nanging tumrap si cubluk bisa kesasar panganggepe, lire: si cubluk lagi meruhi utawa mangerti anane dalan kang kudu diambah, yaiku lagi mangerti andharaning piwulang bisane wudhar saka sakabehing bebandan, rumangsane wus tekan panggonan kang tinuju, lan rumangsa wus wudhar saka sakabehing bebandan kang mbanda dhirine, lan rumangsa wus nunggal marang Dat kang Langgeng (Allah). Mulane si cubiuk banjur kumawasis, suthik manembah ing Pangeran kanthi ngucapake pujianing pangastuti ing sajroning batine, lan emoh nindakake sarat-sarat kang dadi abon-aboning panembah, uga banjur sungkan nindakake Panca Darma Bakti, dhawuhing Sang Guru Sejati, kasebut ing Sasangka Jati. Amarga si cubluk kadunungan panganggep lan pangrasa kaya mangkono mau, mulane banjur sombong ngremehake terkadhang nggeguyu marang para calon siswa (umat) kang padha mituhu marang dhawuhing Sang Guru Sejati lan kang padha netepi sarengating agama suci.
+
+Kahanane si cubiuk kang kaya mangkono mau, pepindhane kaya dene wong wuta kang ngaku weruh dalan, dadi satemene memelas banget. Si cubiuk bakal piduwung lan gelem ngakoni wutane, manawa lakune kesandhung-sandhung lan kesasar-sasar, yaiku yen kepengkok ing pancabaya, amarga ubayane ambalenjani.
+
+Ing saweneh para 'guru ilmu klenik' aweh wejangan ilmu kang diarani 'ilmu kasampurnan' utawa ana kang ngarani 'ilmu tuwa' marang murid-muride, kanthi upacara maneka warna, kayata: nganggo slametan (kendhuri) ingkung jago putih mulus, gedhang ayu, suruh ayu, tindhih dhuwit kang tinemtokake kehe; kang diwejang linggih mori putih, terkadhang dilurupi nganggo jarik utawa mori.
+
+Dene pamejange ing wayah bengi, ana ing iatar, ora kena keyuban ing wangon; si murid linggih madhep mangulon, dene 'kyai guru' lenggah madhep mangetan. Saweneh pamejange ing wayah lingsir wengi, 'guru' lan murid padha lukar busana nyemplung ing kali, pamejange klesak-klesik utawa klenak-klenik, mula kaprahe diarani ngelmu klenik. Wejangane nganggo tembung campur adhuk, Jawa-Arab lan tembung asing liyane, kang ora gampang dimangerteni dening si murid. llmu kang diwejangake dening guru' mau uga diarani ilmu 'pagedhongan' saweneh diarani 'ilmu sangu pati', kang ora kena kanggo rerasan, diucapake ing sadhengah wektu. Sing sapa wus nggembol ilmu iku ing tembe bakal sampurna patine, mangkono pamangsite 'kyai guru' marang muride.
+
+Nanging yen sinawang kanthi kawaspadan lan kawicaksanan, ilmu kang dibeber dening para 'kyai guru' mau dudu ilmu kang bener, awit nyimpang saka dalan bener, sanadyan panganggepe 'kyai guru' ilmu kang nyata, nanging ora bisa nuntun tumeka ing kasunyatan, amarga sanyatane dudu pituduh kang nyata saka wahyu pepadhanging Pangeran."
+
+Sadherek Pangaribawa:
+"Bapak, sareng kula mireng bab warni-warnining piwulang panunggal tuwin kawontenanipun 'ilmu klenik',saya nambahi genging kapitadosan kula, bilih dhawuh wejanganipun Sang Guru Sejati punika sanyata tuntunan ingkang ngrancagaken lampahipun para siswa tuwin umat ing margi leres, inggih margi utami ingkang anjog ing karahayon, katentreman, tuwin kamulyan langgeng.
+Manawi kapandhing kalayan piwulang kados ingkang kadhawuhaken Bapak kala wau, saking pamanggih kula, dhawuh wejanganipun Sang Guru Sejati punika langkung gampil dipun mangertosi tuwin gampil katindakaken dening sintena kemawon ingkang sami pitados.
+. Awit saking punika prasetyaning manah kula boten badhe mingket sapecak saking margi leres pitedahipun Sang Guru Sejati. Kejawi saking punika gumregahing jiwa kula andayani ngalokroning bebandan ingkang suwaunipun ningseti jiwa raga kula. Wiwit kendhoning bebandan mahanani soroting Sang Pepadhang trontong-trontong majari manah kula, kados ngawe-awe supados kula tumunten nyelak tuwin manunggil kalayan kalulut kula Sang Guru Sejati, Panuntun kita ingkang sejati, ingkang nuntun kita dhateng katentreman kamulyan langgeng."
+
+Bapak Pangrasa:
+"Pangaribawa!
+Aku mangayubagya marang prasetyamu, netepi kuwajibaning siswa: bekti, pracaya, lan mituhu marang dhawuhing Sang Guru Sejati, iya dhawuhing Pangeran Sejati."
+
+Sadherek Prabawa:
+"Bapak, sanadyan kula sampun anggiligaken tekad, boten badhe mangro tingal anggen kula ngrungkebi dhawuh wejanganipun Sang Guru Sejati, ewadene kula kepengin mangertos jerenganipun utawi wijangipun piwulang panunggal sekawan tataran ingkang kawedharaken dening para winasis, kados ingkang kadhawuhaken Bapak kala wau. Pramila kula nyadhong deduka kanthi panyuwun mugi keparenga Bapak paring sesuluh kados pundi terangipun tumrap satunggal-satunggaling tataran, supados nambahi seserepan tuwin pangertosan kula ing bab piwulang kasebat."
+
+Bapak Pangrasa:
+"Prabawa!
+Dalan bener kang wis daknyatakake (daksekseni), iku mung dalan bener pituduhe Sang Guru Sejati, sanadyan ana bebasan kabeh dalan iku anjog ing Roma, nanging aku yakin manawa dalan bener kang wis dakambah (daklakoni) iku luwih cedhak lan luwih gampang tinimbang dalan bener liyane.
+Dene piwulang panunggal patang tataran kaya kang dakpratelakake mau aku durung nekseni (nyatakake) benere, sanadyan uga pituduh marang dalan bener. Awit saka iku aku ora wani nerangake kepriye wijange siji-sijining tataran.
+Mangertia Prabawa, manut dhawuh wejangane Sang Guru Sejati kang dakpepundhi, manawa bali manunggal marang Allah iku ora perlu sangu ilmu kang akeh-akeh, jer sakehing ilmu iku tuke (asale) saka Allah, dene sangu kanggo bali marang Allah iku mung kasucian.
+Tumrap para marsudi kasunyatan ora prayoga nggembol ilmu maneka wama corake, awit yen mangkono ora bakal kasembadan sedyane saka tansah ketungkul anggone ngolak-alik ngelmune, pantog-pantoge iya mung dadi ewone wong sugih kawruh, bebasan kaya lemari buku kang mlaku. Ewadene yen kowe mung kepengin mangerti bae bab kasebut, coba sowana marang sadulurku sina-rawedi, kang asma Ki S. Among Budhaya, ing pacrabakan Ngeksi Purnama, nyuwuna priksa wijange piwulang panunggal patang tataran kasebut. Dhimas Among Budhaya iku mumpuni saliring Wedha (kitab-kitab suci), prasasat asalira Wedha.
+Kanthi renaning panggalih Dhimas Among bakal paring wejangan marang kowe kang ndadekake mareming atimu."
+
+Sadherek Prabawa:
+"Sadaya dhawuhipun Bapak badhe kula estokaken. Saking derenging manah kepengin nambahi pangertosan, kula badhe tumunten sowan Bapak Among Budhaya. Nitik asma lan namaning pacrabakan kula pitados bilih panjenenganipun sampun asalira pepadhang tuwin tansah ngetutaken lampah jantraning kabudayan. Kula nyuwun pangestunipun Bapak kemawon mugi-mugi kula boten dados 'lemantun buku ingkang mlampah'."
+
+
+##XVI. PIWULANG PANUNGGAL DUDU SAWIJINING
+KUWAJIBAN KANG KUDU DILAKONI
+DENING PARA KAWULA
+
+
+Sadherek Kemayan:
+"Bapak, keparenga kula nyuwun priksa.
+1. Ngengeti piwulang pamudharan utawi panunggal punika piwulang ingkang adiluhung, gawat, tuwin rungsit, punapa piwulang punika inggih kangge sadhengah?
+2. Punapa inggih wonten umat ingkang saged dumugi pamudharan tuwin saged manunggil kalayan Pangeran (dumugi kasunyatan jati)?
+3. Kados pundi kawontenanipun tiyang ingkang sampun dumugi kasunyatan jati, tuwin kados pundi raos-pangraosipun?"
+
+Bapak Pangrasa:
+"Mangertia Kemayan! 
+Manawa piwulang pamudharan lan panunggal iku dudu sawijining kuwajiban kang kudu dilakoni dening para kawuia (umat). Nanging piwulang kasebut kasadhiyakake kanggo sadhengah, ora winatesan mung kanggo sagolonganing umat bae. Dene wong bisa lan orane nglakoni piwuiang kasebut nganti tumeka ing kasunyatan jati, iku iya mung gumantung marang kang padha ngiakoni. Apa dhedhasar kasantosaning tekad kang linambaran pangurbanan, apa mung mandheg ing wicara lan miyar-miyur ing ati, iku kang meruhi iya mung kang nglakoni dhewe.
+.Dene umat kang bisa tumeka ing kasunyatan jati iku bebasan 'Sayuta siji ombyokan', tegese: sanadyan piwuiang pamudharan lan panunggai iku kena diupamakake kaya dene dalan kang mayat (ndeder) banget, lunyu, lan rumpil, kang ora bisa diambah dening sadhengah wong, ewasamono iya ana kang bisa ngambah tumeka ing 'puncaking dalan kasunyatan jati', sanadyan ora akeh wewilangane."
+
+
+## XVII. KAHANANE WONG KANG WUS TUMEKA
+lNG KASUNYATAN JATI
+
+
+"Sumurupa Kemayan!
+Mungguh kahanane wong kang wus tumeka ing kasunyatan jati, iku ora bisa disumurupi dening sadhengah, bebasan kesampar kesandhung, nanging pilih jalma kang bisa meruhi. Dene sifat-sifat lan kahanane wong kang wis tumeka ing drajat luhur kasebut, kang bisa dakterangake lan bisa disumurupi dening para mursid iya mung sawetara kaya kang dakpratelakake ing ngisor iki:
+1. tandang tanduke prasaja ngresepake
+2. sumanak tangkebe marang sapa bae
+3. tata lan susila solah bawane
+4. sethithik guneme, sareh wicarane
+5. jatmika yen micara, ora srawean tangane
+6. padhang lan sumeh, nanging wingit pasemone
+7. tajem lan sumorot netrane
+8. prasaja sandhang panganggone
+9. prasaja uripe, luhur budine
+10. kasabarane pindha samodra raya
+11. ngegungake pangapura, adil paramarta
+12. welas-asih-tresna marang sapadha-padha
+13. netepi wajibing ngaurip kanthi tata lan susila
+14. ngajeni ngluhurake kabeh agama
+15. setya marang undhang-undhang pranataning nagara
+16. ora mbedak-mbedakake drajat, golongan, bangsa, priya-wanita, wredha-mudha
+17. kabeh rinengkuh padha, nanging ora ninggal tata krama
+18. ora ninggal tata-caraning urip bebrayan ing donya
+19. samad-sinamadan, reksa-rumeksa kanthi subasita
+20. ora salin jeneng, sesebutan kang rineka, rinengga-rengga, supaya kaloka dipuja-puja ing bawana
+21. ora ngongasake pangawikan, kawaspadan, lan panguwasa, sanadyan tetelune mau wus kasalira.
+
+Dene tumrap rasa-pangrasaning batin (ati) iku ora bisa disumurupi dening sapa bae; bebasan 'sajero-jeroning samodra isih bisa dijajagi, nanging rasa-pangrasa atining wong, luwih-luwih wong kang wus tumeka ing kasunyatan jati, ora bisa dijajagi (disumurupi)'.
+Supaya ndadekake pangertimu, dakjarwani sawetara, kenoa kanggo pangilon utawa tepa tuladha marang kang padha marsudi kasunyatan jati, aja nganti kesasar lan kacidran dening dayaning pangaku-akuning angen-angen kang kulina ngaku-aku.
+Mungguh sejatining rasa pangrasaning batin ora bisa yen diterangake kanthi tetembungan, awit jembare nglangut pindha samodra kang tanpa tepi; samodra kang ora angombak nganakake alun, yaiku: ciptane, naiare, angen-angene ora padha makarti, kang nganakake geganthan, gegambaran, lan bayang-bayangan kang nuwuhake rasa:
+bungah-susah
+waswas,samar-samar
+rangu-rangu, bendu
+sangga-runggi, meri
+giris-miris
+papa-sangsara
+asor-luhur, misuwur
+kojur-mujur
+gampang-angel lan sapanunggalane.
+
+Endahing rasa-pangrasa, ngungkuli kaendahaning alam kang gumelar iki.
+Upama gegandan, ratu-ratuning arum kang ngambar amrik awangi.
+Upama rasa legi, ratu-ratuning memanis kang legi wangi.
+Upama sulistyaning putri, ratu-ratuning widadari.
+Upama sesotya, musthikaning sesotya kang edi-peni.
+Upama cahya, sumunare ngungkuli cahyaning sang sitaresmi.
+Upama banyu, tuking banyu bening kang suci murni.
+Dene rasa pangrasa kang bisa dakterangake kanthi tetembungan, kang sanyata rinasa :
+ayem-tentrem, marem
+heneng - hening - eling
+nikmat-manfangat
+bahagya-mulya, wicaksana
+tetep karasa manunggal ing Suksma:
+Sejatining Urip, kang nguripi kabeh sifat urip, mula karasa manunggal lan kabeh sifat urip, rumesep ing kabeh wujud ana, iya kahanan kang gumelar iki, ora winatesan ing wektu lan panggonan, adoh lan cedhak, rupak lan sesak.
+
+Kaya mangkono kahanane wong kang wus tumeka ing sampurnaning panunggal (kasunyatan jati) kang bisa dakterangake sawetara.
+Dene darmane marang jagad:
+Memayu-hayuning bawana kang sanyata, kang didhasari sih-katresnan lan kaadilan kanthi pangorbanan.
+Aweh tuntunan lan tuladha kanthi tindak kang nyata supaya umat manungsa padha rukun, samad-sinamadan, tata lan mastuti ing Suksma, kang agawe tata-tentrem-ayem raharjaning bawana.
+
+Mangertia putraku Kemayan! Manawa ana kang darbe pangira lan panganggep yen wong wus tumeka ing kasunyatan jati iku banjur sumingkir saka bebrayan urip, dedunung ing panggonan kang sepi: lumebu ing alas, ing guwa, ing puncaking gunung; mung tansah muja-semedi, ateki-teki, tapa brata, ora makarya kanggo perluning urip ing donya, mbeberake kasekten, panguwasa, lan pangawikaning gaib, kayata:
+1. bisa ngilang, bisa mimba warna, molah-malih rupa, ora pasah sakehing braja, bisa nyipta barang kang ora ana, dipendhem nganti jam-jaman ora mati, ora krasa panasing geni lan sapanunggalane;
+2. bisa nambani sawamaning lelara;
+3. bisa meruhi lelakon kang durung kelakon, mbethek-mbethek nasibing manungsa sawiji-wiji, lan sapanunggalane.
+
+Pangira Ian panganggep kang kaya mangkono iku kleru, awit mungguh sanyatane ora tumindak kaya mangkono.
+Wong kang wus tumeka ing kasunyatan jati ora wara-wara lan ora ngandhakake marang sapa bae, yen wus tumeka ing drajat kang luhur iku, mula iya ora kasumurupan dening sadhengah wong.
+Mula yen ana wong ngandhakake utawa ngaku yen dheweke wus tumeka ing kasunyatan jati, jumeneng wiku, pandhita, kanthi jeneng lan jejulukan kang muluk-muluk, kayata: 'panembahan', 'kyai ageng', 'mahaguru', lan sapanunggalane, iku aja age-age dipercaya lan diguroni, sanadyan dheweke ndarbeni panguwasa kang elok-elok, bisa nambani sarupaning lelara, bisa mbethek-mbethek, lan sapiturute. Aweh wejangan kang muluk-muiuk lan dakik-dakik, kang katone becik, nanging yen piwulange mau nyimpang saka Dalan Rahayu (Panca Darma Bakti) lan nyebal saka wewarahing Hastha Sila, apa dene cengkah lan wewatoning hukum agama kang bener, iku terang dudu pituduh kang nyata, kang nuntun marang karahayon lan katentreman langgeng. Prayogane piwulange 'Kyai Guru' mau ora perlu digugu lan ditiru. Luwih-luwih yen kabeh tindak-tanduke mau dikantheni pamrih golek suwur, pangaji-aji, lan harta daya, iku mratandhani manawa 'Sang Panembahan' mau durung nglungguhi (ndarbeni) budi luhur, kang dadi andhaning panunggal (dalaning kasunyatan)."
+
+
+## XVIII. TUNDHA-TUNDHANING DRAJAT TUMRAP PARA
+. MARSUDI (NGGAYUH) KASUNYATAN JATI
+
+
+"Mangerti kahanane lan sifat-sifating wong kang wus tumeka ing kasunyatan jati (sampurnaning panunggal) iku ana becike, yen kajupuk paedahe, yaiku:
+1. kanggo njaga aja nganti kajlomprongake dening pangaku-akuning Aku, angen-angen (gagasan) kang kulina ngaku-aku;
+2. kanggo tepa palupi utawa pangilon;
+3. kanggo pedhoman (pandom) supaya lakune ora kesasar menggok mangiwa lumebu ing alam kadewatan;
+4. kanggo mekani aja nganti kebandhang dadi korbaning wong kang ngaku dadi wiku, guru klenik, lan sapanunggalane, kang gawe kapitunan lair batin.
+Nanging ora prayoga yen mung digawe rerembugan utawa kanggo bahan sesorah, kanthi pamrih supaya ben diarani wis tumeka ing drajat kang luhur (kasunyatan jati), amarga yen mangkono bakal padha kapitunan lan keduwung wekasane.
+Piwelingku marang putra-putraku kabeh, poma aja padha tumindak kaya mangkono, mundhak mung dadi wong kang wasis micara, utawa mung dadi 'tape recorder' kang bisa mlaku mider-mider.
+Kemayan, yen kowe kepengin nggayuh kasunyatan jati (sampurnaning panunggal), tumuli tumindaka saka sathithik (setapak demi setapak) lumaku ing dalan bener kanthi netepi sarat-sarat kaya kang wus dakpratelakake ing ngarep, lakumu kang ajeg dhinasaran kasabaran, kasantosan, lan pangorbanan. Ora kanyana-nyana (ora kanthi pangarep-arep) ujug-ujug kowe wis lumebu ing 'Pura Panunggal' awit saka sih nugrahaning Pangeran, katuntun dening Sang Sasangka Jati.
+Ing samengko padha rungokna kanthi wenganing ati kang suci, dakjarwani manawa drajating kasiswan, yaiku para marsudi (nggayuh) kasunyatan jati iku katatar ana patang tataran, dene tundha-tundhaning drajat kaya ing ngisor iki:
+Tataran I sinebut drajat Calon Siswa
+Tataran II sinebut drajat Siswa
+Tataran III sinebut drajat Guru
+Tataran IV sinebut drajat Guru Agung
+
+Tataran I
+Yaiku kahanane wong kang wus kabuka atine, niyat nyiswa marang Sang Guru Sejati utawa ngibadah ngestokake dhawuhing Allah.
+Ing tataran I sinebut drajat Calon Siswa.
+Upama kawula darbe sedya lumebu ing kedhatoning Sang Nata, lagi tekan ing sangareping gapura kedhaton (srimenganti) kang korine isih tinutup.
+
+Tataran II
+.Kahanane calon siswa kang wis kawasa nelukake hawa nafsune, wataking Aku kang kumaluhur, kumawasa, kuminter, kang gawene ndhaku, ngaku-aku, wis kalindhih lan pasrah, mula banjur mituhu kaereh dening angen-angen. Satemah bisa mungu Roh Suci, yaiku jiwaning manungsa kang sejati, saka anggone sare sinalib dening sang Aku sarana kinemulan dening urubing nafsu. Sasireping genining nafsu saka tetesing banyu Tri Sila, Roh Suci banjur jumeneng masesani jagad cilik, ing telenging sanubari kang sinuci.
+Ing tataran II sinebut drajat Siswa
+Upama kawula lumebu ing kedhatoning Sang Nata, wis tekan plataraning kedhaton, sangareping pendhapa agung, mula bisa meruhi Sang Patih kang lenggah umareg ing ngarsaning Sang Nata ing pendhapa agung, lan bisa nampa (ngrungokake) pangandikane Sang Patih.
+Siswa bisa nampa sabda pangandika, yaiku bisa nampa tuntunan lan pepadhanging Sang Guru Sejati, ing telenging sanubari kang suci.
+
+Tataran III
+Kahanane siswa kang wis kawasa ngurbanake Akune, yaiku wong kang wis ora kapurbawasesa dening pakartining ciptane, nalare, angen-angene, lan pangertine, yaiku kang wis sampurna kasuciane. Satemah Roh Suci kawasa lumebu ing malige suci manunggal luluh dadi siji lan Suksma Sejati, jumeneng ing telenging urip, kang nguripi kabeh sifat urip.
+Ing tataran III sinebut drajat Guru.
+Upamane kawula lumebu ing kedhatoning Sang Nata, sifating kawula (Aku) wis sirna. Sirnaning Aku jumeneng Ingsun, mula kawasa lumebu ing pendhapa agung, manunggal lan Sang Patih, kang lenggah ing tengah-tengahing pendhapa agung (loroningatunggal) ngadhep ngabyantara ing ngarsaning Sang Nata.
+Wasana Sang Patih, kang dadi wewakil angemban purbawasesaning Sang Nata, kapatedhan sih dhawuh timbalaning Sang Nata.
+Sanepa iki werdine:
+Siswa kang winahyu drajat Guru, manunggal lan Guru Sejati (Suksma Sejati), wewakil utawa Utusaning Suksma Kawekas kang langgeng, kang dadi Panutan, Panuntun, lan Guruning Jagad kang Sejati, pinareng nampa sabda pangandikaning Allah ing telenging rahsa jati, iya ing telenging ati sanubari kang sinuci.
+
+Tataran IV
+Kahanane siswa kang winahyu drajat Guru, kang wis sampuma kasuciane, kinasih pinutra-putra dening Sang Rama, mula winenangake dening Sang Rama lumebu ing kedhatoning kasucian, manunggal lan Suksma Kawekas, tuking Urip, iya sangkan paraning sagung dumadi, kang murbamasesa jagad gedhe lan jagad cilik, kabeh alam saisine.
+
+Ing tataran IV sinebut drajat Guru Agung, sampumaning panunggal.
+Upama kawula lumebu ing kedhatoning Sang Nata, wis lumebu ing tengahing praba suyasaning dhatulaya: sifating kawula lan patih wis sirna, manunggal lan Sang Nata (teluning-atunggal), Sang Nata pribadi kang mengkoni kabeh kawula, lenggah ing dhampar kencana, yaiku isbating: karsa kang ora winedhar (gumelar) utawa rantamaning karsa.
+Pepindhane kaya samodra-gung, iya samodraning urip, kang jembare tanpa tepi, ora mbaludag kejogan ilining kali kang mayuta kehe. Samodra kang jinem ora ngombak nganakake alun.
+Siswa kang wis tumeka drajat Sampurnaning Panunggal bisa nekseni:
+1. jumenenging Pangeran Kang Mahatunggal (Tripurusa) ing telenging rahsa jati, iya ing telenging ati sanubari kang sinuci.
+2. kaagungan, kawicaksanan, panguwasa, kaadilan, kasucian, lan kababaring karsaning Allah.
+3. pangayoman, murah Ian asihing Pangeran marang sagung titah urip (umat).
+Tundha-tundhaning drajat kasiswan kasebut ing dhuwur ana condhonge utawa mirip yen kalarasake karo laku ngibadah patang prakara manut tuntunan agama Islam, yaiku kang sinebut:
+1. Sarengat, 2. Tarekat, 3. Hakekat, 4. Makrifat
+Kang mangkono mau yen sari-sarining pituduh dimangerteni lan dilakoni ing samesthine."
+
+Sadherek Kemayan:
+"Bapak, kula ngaturaken genging panuwun. Sadaya dhawuhipun Bapak ndamel padhanging manah kula tuwin nambahi kiyating jiwa kula satemah gumaregah tangi badhe nggentur tapa brata, mastuti ing Widi, mituhu dhawuhing Sang Guru Sejati,kanthi pangesthi mugi-mugi korining srimenganti'tumunten menga kangge kula, salajengipun kula pinarengaken lumebet ing 'pura panunggal' awit saking sih tuntunanipun Sang Sejati.
+·· Dhawuhipun Bapak bab tundha-tundhaning drajat kasiswan punika prayogi sanget tumrap para calon siswa, tuwin sintena kemawqn ingkang sami kepengin nggayuh kasunyatan jati, amargi kenging kangge pedhoman supados lampahipun boten tuna dungkap tuwin kaplengkang saking anggenipun kinggilen panjangka, satemah jangkahipun keplesed. Jalaran sami boten purun ngukur kakiyatan tuwin kawontenaning dhiri pribadinipun, rumaosipun sampun dados murid SMP, mangka Sekolah Rakyat kemawon dereng rampung (lulus) lajeng agahan-gumagah nempuh ujian SMP, inggih mesthi kemawon boten saged lulus, asilipun namung ngelu saking anggenipun mikir angeling aljabar tuwin sapanunggilanipun.
+Kesinggihan dhawuhipun Bapak, ing jaman sapunika, nyarengi retuning bawana, kathah sanget 'lemantun buku mlaku' mbeber isining buku, supados kaloka yen sugih ngelmu; makaten ugi kathahipun 'tape recorder' ingkang mider-mider ider 'order'.
+Mugi-mugi kemawon para calon siswa sami boten ketarik tuwin kepencut mireng gendhing ingkang ngrangin saking 'tape recorder' ingkang larasing gendhing medal sajawining garis-garising Sang Sasangka Jati, inggih punika ingkang nyimpang saking dhawuh wejanganipun (tuntunanipun) Sang Guru Sejati."
+
+Sadherek Prabawa sumela sumambung:
+"Kangmas Kemayan, pangandikanipun Kangmas punikawau, nadyan Kangmas boten njarag, nyinggung utawi nyemoni pangalaman kula. Waleh-waleh punapa, Kangmas, kula nate nylundup mirengaken kuliah. ing 'Gama' babagan 1llmu jiwa ingkang lebet' (Diepte Psychologie), kula mirengaken kanthi yektosan, nanging punapa ingkang kula mirengaken wau kula babar pisan boten ·saged nampi (boten mangertos), saking pangertosan kula boten saged nyandhak. Mila kula lajeng dheleg-dheleg nglamun, wasana ngantuk les kelajeng tilem. Sareng kula tangi jebul sampun biharan, kula kantun piyambakan. Nanging sanadyan makatena, samedal kula saking 'gedung Gama', lampah lagak kula kados mahasiswa, pethitha-pethithi, langkung-langkung sareng pinanggih para mahasiswi, lajeng aksi, ben diarani mahasiswa sejati.
+Nanging Kangmas, sapunika kula sampun boten sombong malih, kula sampun insaf bilih drajat kula kasiswan punika saweg dumugi tataran calon siswa, upami sekolah makaten saweg dados murid SR inggih nglengkara sanget yen kulo saged nampi kuliah ing 'Gama', inggih punika saged netepi sarat-sarat kangge lumebet ing 'Pura Panunggal'.
+Wiwit sapunika kula badhe mbangun karisakaning 'taman jiwa' kula, kanthi ngrasuk Tri Sila, ingkang suwaunipun kabuncang dening 'angining' kasombongan kula, sarana manembah saha nebihi pepacuhing Allah."
+
+Sadherek Kemayan kanthi mesem mangsuli:
+"Dhimas Prabawa, anggonku ngempet guyu nganti atos wetengku, ngrungokake pangalamanmu, sanadyan aku mangerti yen dongengmu mau mung wujud pasemon (lambang), kang satemene ora mangkono mungguh nyatane.
+Aku ora pisan-pisan niat nyinggung utawa nyemoni Dhimas, jer aku mung salugu ngandhakake apa kang dakweruhi sawenehing calon siswa kang kesusu ing laku, kaya lelakon kang wis tau koklakoni mau, bareng ora tekan ing panggonan kang dituju, yaiku ora/ durung kasembadan apa kang ginayuh (kang dipengini) banjur bali ndalan, lire banjur ora sida nyiswa marang Sang Guru Sejati utawa ora diteruske anggone niyat ngibadah ngestokake dhawuhing Allah.
+Sokur, Dhimas saiki wis insa£ yen drajatmu iku lagi tekan tataran I, calon siswa.
+Bungahing atiku dene Dhimas gelem ngakoni kesalahanmu, lan sumedya mbangun karusakaning 'taman atimu' (imanmu), mituhu dhawuhing Sang Guru Sejati.
+Wong kang gelem lan wani niti priksa dhiri pribadi, iku pantes pinuji, lan kena kanggo tepa palupi. Cukup semene pituturku marang Dhimas."
+
+Sadherek Prabawa:
+"Kangmas, kula ngaturaken panuwun, dhawuhipun Kangmas kula pundhi, kula nyuwun pangestunipun Kangmas supados kula dados calon siswa ingkang sanyata bekti tuwin mituhu, salajengipun minggah drajating kasiswan kula."
 
 
 ```{contents}
