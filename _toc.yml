@@ -1,23 +1,23 @@
 # Table of contents
 # Learn more at https://jupyterbook.org/customize/toc.html
 
-format: jb-book
-root: index
-chapters:
-  # - file: book/markdown
-  # - file: book/notebooks
-  # - file: book/bibliography
-  - file: book/pangestu/spra.md
-  - file: book/pangestu/ssj.md
-  - file: book/pangestu/skh.md
-  - file: book/pangestu/brsr.md
-  - file: book/pangestu/asbs.md
-  - file: book/pangestu/olahrasa.md
-  - file: book/pangestu/ukk.md
-  - file: book/pangestu/tkl.md
-  - file: book/pangestu/wsj.md
-  - file: book/pangestu/uujm.md
-  # - file: book/testbook.md
+# format: jb-book
+# root: index
+# chapters:
+# - file: book/markdown
+# - file: book/notebooks
+# - file: book/bibliography
+# - file: book/pangestu/spra.md
+# - file: book/pangestu/ssj.md
+# - file: book/pangestu/skh.md
+# - file: book/pangestu/brsr.md
+# - file: book/pangestu/asbs.md
+# - file: book/pangestu/olahrasa.md
+# - file: book/pangestu/ukk.md
+# - file: book/pangestu/tkl.md
+# - file: book/pangestu/wsj.md
+# - file: book/pangestu/uujm.md
+# - file: book/testbook.md
 # Or you organize the TOC by parts
 # parts:
 #   - caption: Chapters
@@ -32,16 +32,82 @@ chapters:
 # format: jb-book
 # root: index
 # parts:
-#   - caption: Perpustakaan
+#   - caption: Ruang Pustaka
 #     chapters:
-#     - file: book/pangestu/asbs.md
+#     # - file: book/pangestu/asbs.md
 #     - file: book/pangestu/ukk.md
 #       sections:
 #       - file: book/pangestu/wsj.md
-#   - caption: Online Library
-#     chapters:
-#     - file: book/pangestu/header.md
-#       sections:
-#       - file: book/testbook.md
-#       - file: book/markdown.md
+#   # - caption: Online Library
+#   #   chapters:
+#   #   - file: book/pangestu/header.md
+#   #     sections:
+#   #     - file: book/testbook.md
+#   #     - file: book/markdown.md
 
+##### last good ######
+# format: jb-book
+# root: index
+# parts:
+#   - caption: RUANG PERPUSTAKAAN
+#     chapters:
+#     - file: book/ruangpustaka.md
+#       sections:
+#       - file: book/pangestu/spra.md
+#       - file: book/pangestu/ssj.md
+#       - file: book/pangestu/skh.md
+#       - file: book/pangestu/brsr.md
+#       - file: book/pangestu/asbs.md
+#       - file: book/pangestu/olahrasa.md
+#       - file: book/pangestu/ukk.md
+#       - file: book/pangestu/tkl.md
+#       - file: book/pangestu/wsj.md
+#       - file: book/pangestu/uujm.md
+#   - caption: RUANG AUDIO VISUAL
+#     chapters:
+#     - file: book/ruangaudiovisual.md
+#       sections:
+#       - file: book/dataaudiovisual.md
+#       - file: book/rekamanolahrasa.md
+
+##### last good ######
+
+format: jb-book
+root: index
+parts:
+  - caption: RUANG PERPUSTAKAAN
+    chapters:
+      - file: book/ruangpustaka.md
+        sections:
+          - file: book/pangestu/spra.md
+          - file: book/pangestu/spra_jawa.md
+          - file: book/pangestu/ssj.md
+          - file: book/pangestu/ssj_ind.md
+          - file: book/pangestu/skh.md
+          - file: book/pangestu/brsr.md
+          - file: book/pangestu/asbs.md
+          - file: book/pangestu/olahrasa.md
+          - file: book/pangestu/ukk.md
+          - file: book/pangestu/tkl.md
+          - file: book/pangestu/wsj.md
+          - file: book/pangestu/uujm.md
+          - file: book/pangestu/bukulain.md
+      - file: book/kumpulanartikel.md
+        sections:
+          - file: book/testbook.md
+  - caption: RUANG AUDIO VISUAL
+    chapters:
+      - file: book/ruangaudiovisual.md
+        sections:
+          - file: book/dataaudiovisual.md
+          - file: book/rekamanolahrasa.md
+
+  # - caption: RUANG PERPUSTAKAAN
+  #   numbered: true
+  #   maxdepth: 2
+  #   chapters:
+  #     - file: book/ruangpustaka.md
+  #     # - file: book/notebooks
+  # - caption: RUANG AUDIO VISUAL
+  #   chapters:
+  #     - file: book/bibliography

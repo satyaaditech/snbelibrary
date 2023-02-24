@@ -2,3 +2,7 @@ p {
     text-align: justify;
     font-size: 1.2em;
 }
+
+nav.bd-links{
+	background-color: azure;
+}

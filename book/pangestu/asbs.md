@@ -26,7 +26,7 @@ Diperintahkan kepada panitera muda ini untuk menulis diktat dari Bapak Pangrasa.
 
 ## 1. Suksma Kawekas
 
-Sebelum ada apa-apa yang berbentuk dan berwujud, **Suksma Kawekas** telah bertakhta pribadi. [**Suksma Kawekas**](penjelasan-tripurusa) dapat dipandang sebagai asal mula Kesadaran Hidup yang tidak terbatas, tenang, tenteram, dan tidak bergerak. Di dalamnya terkandung kemampuan yang tidak terbatas, sesuatu omnipotensi, tetapi **omnipotensi** ini belum bergerak.
+Sebelum ada apa-apa yang berbentuk dan berwujud, **Suksma Kawekas** telah bertakhta pribadi. **Suksma Kawekas** dapat dipandang sebagai asal mula Kesadaran Hidup yang tidak terbatas, tenang, tenteram, dan tidak bergerak. Di dalamnya terkandung kemampuan yang tidak terbatas, sesuatu omnipotensi, tetapi **omnipotensi** ini belum bergerak.
 
 Di dalam Kesadaran Agung yang diam ini terkandung Kehendak untuk melepaskan cahaya-cahaya kemampuan dan kesadaran sebagai 'pletikan api' dari api Yang Maha Agung. Tetapi cahaya-cahaya ini belum ada kancahnya. Untuk melaksanakan Kehendak tersebut, omnipotensi yang diam tadi mulai bergerak.
 
@@ -34,7 +34,7 @@ Bergeraknya omnipotensi ini mengeluarkan kejayaannya dan dayanya. Kita misalkan 
 
 ## 2. Suksma Sejati
 
-Bilamana [Suksma Kawekas](penjelasan-tripurusa) diumpamakan air yang diam, air yang bergerak adalah simbolnya Suksma Sejati.
+Bilamana Suksma Kawekas diumpamakan air yang diam, air yang bergerak adalah simbolnya Suksma Sejati.
 
 Suksma Kawekas adalah Kesadaran Hidup yang Statis, sedangkan Suksma Sejati adalah Kesadaran Hidup yang Dinamis. Suksma Kawekas yang mempunyai kekuasaan, Suksma Sejati yang memegang kekuasaan. Air yang bergerak seolah-olah disuruh oleh air yang diam untuk menunjukkan kekuasaannya. Suksma Sejati disuruh oleh Suksma Kawekas untuk merencanakan Kehendak-Nya.
 
@@ -52,7 +52,7 @@ Cahaya-cahaya yang dilepaskan oleh dan dari Suksma Sejati belum ada kancahnya. C
 
 Samudera yang diam simbolnya Suksma Kawekas; samudra yang bergelombang candranya Suksma Sejati.
 
-Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terbatas, bilamana dihandingkan dengan samudranya tetapi sama-sama air. [Roh Suci](penjelasan-tripurusa) adalah kecil dan terbatas bila dibandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
+Titik-titik air yang menguap melepaskan diri dari samudra adalah kecil dan terbatas, bilamana dihandingkan dengan samudranya tetapi sama-sama air. Roh Suci adalah kecil dan terbatas bila dibandingkan dengan Suksma Sejati dan Suksma Kawekas, tetapi sama-sama suci.
 
 Terbatasnya Roh Suci menimbulkan adanya individualitas pribadi yang terbatas pula. Waktu itu Roh Suci dikandung dalam suasana bahagia oleh Suksma Sejati dan Suksma Kawekas.
 
